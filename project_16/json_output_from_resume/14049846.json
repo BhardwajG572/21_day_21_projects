@@ -1,0 +1,54 @@
+{
+    "personal_info": {
+        "name": null,
+        "email": null,
+        "phone": null,
+        "linkedin": null,
+        "github": null,
+        "location": null
+    },
+    "summary": "looking for an opportunity as an engineer or related position which offers key participation, team-oriented tasks, immediate challenges and career opportunities in a reputed organization which will help me deliver my best and upgrade my skills in engineering and meet the demands of the organization. To utilize my technical skills for achieving the target and developing the best performance in the organization. I would like to implement my innovative ideas, skills and creativity for accomplishing projects.",
+    "work_experience": [
+        {
+            "company": "Company Name",
+            "job_title": "Engineering Intern",
+            "start_date": "06/2014",
+            "end_date": "06/2014",
+            "description": "Develop, evaluate, document, and advance manufacturing methods and processes through Lean techniques and Kaizen Events.\nAnalyse production layouts, designing and implementing efficiency and quality improvement projects across production lines.\nCollaborate with administrative and financial teams to establish viable support of safety standards.\nProvide ongoing production support and troubleshooting.\nNoticeable Contribution: Prepared report on project status for management, conceptual design as well as process development. Monitored production tables, studied industry engineering specifications to obtain knowledge of production methods and techniques.\nDirected workers involved in different operations such as: product measurement, inspection and testing activities to ensure quality and reliability."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Engineering Intern",
+            "start_date": null,
+            "end_date": null,
+            "description": "Installed, maintained, and operated mining and oil field equipment.\nDesigned and implemented environmental controls on oil and gas operations.\nPresented a paper in the university.\nTrained in hydraulic fracturing and acid treatment. Noticeable Contribution: I was involved in a multidisciplinary team for reservoir simulation and development.\nThe responsibilities included: running routine and special core analysis on different reservoir core samples, reservoir characterizations, and reservoir simulation.\nThis project gave me exposure to the following: refining process working of crude distillation units hydro-cracker unit fluid catalytic cracking unit continuous catalytic reforming unit visbreaker unit isomerisation unit diesel hydro -desulphurisation unit.\nNoticeable Contribution: Calculated production accuracy, yield and testing equipment to propose corrective actions.\nEmployed statistics to analyze manufacturing vs. requirements and suggest improvements.\nPrepared work plans and forecast of production/industrial equipment for management reviews and control.\nMonitored and organized workflow schedules according to manufacturing sequences and standard lead time of production operations."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Engineering Intern",
+            "start_date": null,
+            "end_date": null,
+            "description": "Performed extraction using sub-critical Carbon-di-oxide for the extraction of Nutraceuticals where I worked in a team of four under Mr.R.Senthil Kumar (Professor, Sastra university).\nWe developed our own process design to extract nutraceuticals in a more efficient way with better purity.\nI experienced a research lab first hand and had the opportunity to work in close quarters with eminent people from the industry. Noticeable Contributions: Developed accurate, operations-wide measurement standards to increase production, minimize non-value-added time, and reduce cost.\nMonitored and analyzed workflow, processes, procedures, and line activities, identifying and resolving bottlenecks to maximize efficiency.\nCreated cost models to support customer proposals and cost reduction initiatives.\nServed on quality assurance team, developing guidelines and procedures to improve standards and performance.\nDeveloped documentation system to ensure accurate, timely updates."
+        }
+    ],
+    "education": [],
+    "skills": [
+        "Know-your-consumer (KYC)",
+        "Statistical process control",
+        "Cost reduction and avoidance",
+        "Systems Engineering",
+        "Systems Engineering management",
+        "Software systems engineering",
+        "Quality control",
+        "Failure analysis",
+        "Tools of operations research",
+        "MS Office",
+        "Auto CAD"
+    ],
+    "projects": [
+        {
+            "name": "NATURAL AND ESSENTIAL OILS PVT LTD.",
+            "description": "Performed the extraction of essential oils from flower called tuberose and convert it to the desired product using an Rota-vapour distillation apparatus, and a full scale quality analysis was carried out in the lab which included the GCMS (gas chromatography mass spectrometer."
+        }
+    ]
+}

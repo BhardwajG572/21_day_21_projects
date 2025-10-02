@@ -1,0 +1,63 @@
+{
+    "personal_info": {
+        "name": null,
+        "email": null,
+        "phone": null,
+        "linkedin": null,
+        "github": null,
+        "location": null
+    },
+    "summary": "Seeking a Position of Engineering Technician. SUMMARY of Qualifications. Fifteen years of R&D lab support. Troubleshoot and debug system to component level. Ten years of test lab setup and test equipment configuration. Over ten years of quality analyst/Inspections. PC board rework (fine pitch and through hole soldering) Test plan and test case development. Validation and regression tests execution and documentation. Complex system troubleshooting. Results-driven and focused Engineering Technician who prioritizes safety, cost-effective solutions and exceeding customer expectations.",
+    "work_experience": [
+        {
+            "company": "Company Name",
+            "job_title": "Engineering Technician",
+            "start_date": "11/2012",
+            "end_date": "Current",
+            "description": "Completed projects by effectively applying engineering, technical and maintenance procedures.\nUsed precision test equipment such as oscilloscopes, multi-meters, waveform generators and spectrum analyzers.\nFollowed verbal instructions and hand sketches to adapt and modify tooling.\nImproved product quality by customizing tools and eliminating variability.\nInitiated contact with vendors and built solid working relationships with them.\nFollowed up on manufacturing and field reports and resolved outstanding problems."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Quality Analyst/Document Control Specialist",
+            "start_date": "01/2009",
+            "end_date": "10/2012",
+            "description": "Collaborated with engineers at the new product introduction phase to develop and verify design changes.\nImproved product quality by customizing tools and eliminating variability.\nInitiated contact with vendors and built solid working relationships with them.\nFollowed up on manufacturing and field reports and resolved outstanding problems.\nConducted engineering and detailed experimental tests to collect design data and assist in research work.\nUsed precision test equipment such as oscilloscopes, multi-meters, waveform generators and spectrum analyzers.\nImplemented schematics, diagrams and written and verbal descriptions to effectively solve engineering project issues."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "IT Associate",
+            "start_date": "11/2007",
+            "end_date": "01/2009",
+            "description": "Configure and test computer components on windows XP and Vista OS.\nInstall patches and virus protection software.\nMigration of legacy system to latest technology.\nSupport end users in issue resolution and training.\nReport bugs into bug database, track bug progress and verify bug fixes.\nCreate, modify and execute test cases to qualify releases on multiple servers and platforms.\nSet up individual users with common resources i.e. network printers.\nWork closely with software, hardware engineers and QA team members to identify bugs, report and resolve technical issues."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Test Technician",
+            "start_date": "04/2003",
+            "end_date": "11/2007",
+            "description": "Unit test of individual components.\nWork closely with developers to investigate and resolve technical issues.\nSetup, Configure and execute system and performance tests.\nQualification and Regression tests Verification of bug fixes/resolution.\nReport problems in the bug tracking system.\nCompiled data and generated graphs to interpret results and suggest key operational improvements.\nFollowed verbal instructions and hand sketches to adapt and modify tooling.\nCollaborated with engineers at the new product introduction phase to develop and verify design changes."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Computer/Network Instructor",
+            "start_date": "02/2000",
+            "end_date": "04/2003",
+            "description": "Build computer networks (exp.\nPeer-to-peer, client server) Setup different types of network Protocols and their usage."
+        }
+    ],
+    "education": [],
+    "skills": [
+        "Exceptional time management",
+        "Operational analysis",
+        "Root cause analysis",
+        "Technical plan execution aptitude",
+        "Highly dependable",
+        "Detail-oriented",
+        "Product improvement",
+        "Strong leader",
+        "Manufacturing process controls",
+        "Proficient in SolidWorks",
+        "Decisive"
+    ],
+    "projects": []
+}

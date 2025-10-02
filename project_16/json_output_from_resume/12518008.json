@@ -1,0 +1,69 @@
+{
+    "personal_info": {
+        "name": null,
+        "email": null,
+        "phone": null,
+        "linkedin": null,
+        "github": null,
+        "location": null
+    },
+    "summary": "Experienced product development Engineer and manager able to collaborate with cross functional team as well as customers and sales to bring brand new offerings to new markets. Skilled at managing cross functional team for continuous improvements and meeting project deadlines. Offering 6 years of experience in the field.",
+    "work_experience": [
+        {
+            "company": null,
+            "job_title": "Engineering Manager",
+            "start_date": "03/2018",
+            "end_date": "Current",
+            "description": "Create and maintain Technical Files per MDR requirements as well as attaining 510k on legacy products.\nAssess testing gaps of legacy products and design creep.\nExperienced in working with multiple departments.\nExperienced in training and leading engineers in order to investigate field complaints, Gap analysis and building Technical files/DHF.\nExperienced in leading team of engineers to lead all aspects of design process, including regulatory needs per market and development per design control.\nTasked to create test plan and analysis of existing Class I, II and III products and Testing per latest applicable requirements.\nTrained team in conducting project related cost analysis, test gap analysis and researching ISO/EN ISO/ASTM requirements.\nLeading companywide EU MDR product transfer and testing on Infusion products, Dialysis products and standalone products.\nProvided technical direction on MDR and 510k related projects and initiatives to other engineers and technicians."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Project Engineer II",
+            "start_date": "03/2017",
+            "end_date": "03/2018",
+            "description": "Working with product management, Clinical Analyst, sales, and regulatory to determine optimal design inputs for new products.\nCompleted design transfer and attained 510k on Class IIb device in under year.\nLead cross functional team including consulting agency in order to Develop drug device combination product and research optimal process using DOE in order for mass production.\nLeading all aspects of design control from designing on solid works to process validations and V&V Testing.\nAnalyzing and resolving field failures through investigation and testing.\nExperienced in working with international regulatory teams in providing information for foreign registration.\nResponsible for gap analysis and test planning in order to create and meet deadline for projects.\nExperienced with reviewing and approving validation activities as well as provide support to staff to achieve project milestones.\nExperienced working with cross functional teams to complete projects and tasks."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Engineer I",
+            "start_date": "06/2013",
+            "end_date": "03/2017",
+            "description": "Worked to bring Drug Device Combination product to mass production.\nCompleted new Class IIa product and completed project in 10 months.\nCompleting CAPAs and resolving field failures by research and testing.\nDeveloped new testing methods and designed tooling for new testing.\nExperienced in using Injection Molding Machine to Create and Test Prototypes.\nFound cheaper and more responsible vendor for MRI related testing."
+        }
+    ],
+    "education": [],
+    "skills": [
+        "Microsoft Office",
+        "Microsoft Project",
+        "Product development",
+        "Quality",
+        "Research",
+        "Six Sigma Green Belt",
+        "Solid Works",
+        "Visio",
+        "Prioritization",
+        "Personnel management",
+        "Critical thinking skills",
+        "Team management",
+        "Analyst, Visio",
+        "Agency",
+        "Consulting",
+        "Cost analysis",
+        "Critical thinking",
+        "Designing",
+        "Dialysis",
+        "Direction",
+        "Develop drug",
+        "Functional",
+        "ISO",
+        "Leadership",
+        "Market and development",
+        "Design process",
+        "Product management",
+        "Researching",
+        "Sales",
+        "Six Sigma",
+        "Validation"
+    ],
+    "projects": []
+}

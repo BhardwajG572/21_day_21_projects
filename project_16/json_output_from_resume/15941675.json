@@ -1,0 +1,85 @@
+{
+    "personal_info": {
+        "name": null,
+        "email": null,
+        "phone": null,
+        "linkedin": null,
+        "github": null,
+        "location": null
+    },
+    "summary": null,
+    "work_experience": [
+        {
+            "company": "Current Company Name",
+            "job_title": "PROCESS ENGINEERING TECHNICIAN III",
+            "start_date": "January 2007",
+            "end_date": "Current",
+            "description": "Responsible for an engineering/supervisory position providing technical support at a poultry production industry site. Management duties included staffing, ordering equipment, cost analysis, budget estimation, establishment of computer-based archives, lean production, and program management."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Process Engineering Technician III",
+            "start_date": "January 2005",
+            "end_date": "January 2006",
+            "description": "Served as an engineering technician in the process-engineering arm of the Oral Products R&D group at ALZA Corporation. Gained hands-on experience in key pharmaceutical unit operations including milling, blending, fluid bed granulation, aqueous and solvent-based coating, laser drilling, and drying. Participated in product development activities (scale-up experiments, manufacturing clinical and registration stability supplies), early formulation development studies, and late-stage large-scale pre-validation lots. Manufactured clinical batches under strict cGMP compliance. Performed tasks like ordering materials, setting up equipment, preparing and completing documentation, training operators, in-process and other characterization testing with limited data analysis/presentation. Authored multiple technical protocols and reports. Completed experimental and clinical batches at the commercial manufacturing facility in Vacaville as part of the satellite R&D group. Collaborated with quality assurance, formulation, analytical, and pilot plant manufacturing groups."
+        },
+        {
+            "company": "Company Name",
+            "job_title": "Process Engineer and Manufacturing Staff",
+            "start_date": "January 2001",
+            "end_date": "January 2005",
+            "description": "Assisted in process development and commercial manufacturing of transdermal products. Utilized existing and modified equipment in mixing, coating/laminating, and pouching. Revised manufacturing-related documentation including Standard Operational Procedures (SOPs) and Work Instructions (WI)."
+        },
+        {
+            "company": null,
+            "job_title": "Production lead / Process Operator",
+            "start_date": "June 1999",
+            "end_date": "October 1999",
+            "description": "Supervised manufacturing group and operated various equipment for producing transdermal contraceptive products in compliance with cGMP regulations. Participated in process development and process excellence projects. Operated multi-coater/dryer lamination machines with various line speed, temperature, and air flows. Assigned tasks included general troubleshooting, training associates on equipment operation, and proper documentation with strict adherence to cGMP compliance. Managed shift production planning and time management. Contributed to process improvement and waste reduction projects, resulting in increasing production up to 5% for each production lot. Participated in deviation root cause analysis, technical support, Process Qualification (PQ), and Process Validation (PV) following related protocols. Participated in Green Belt projects focused on waste reduction, reduction of production lot turn-around time, and overall time reduction."
+        }
+    ],
+    "education": [],
+    "skills": [
+        "biology",
+        "budget",
+        "charts",
+        "Oral",
+        "cost analysis",
+        "data analysis",
+        "documentation",
+        "equipment operation",
+        "experiments",
+        "graphs",
+        "laser",
+        "materials",
+        "Natural Gas",
+        "Oil",
+        "PQ",
+        "process development",
+        "process-engineering",
+        "process improvement",
+        "product development",
+        "producing",
+        "protocols",
+        "quality assurance",
+        "Research",
+        "staffing",
+        "supervisory",
+        "technical support",
+        "technician",
+        "time management",
+        "troubleshooting",
+        "Validation",
+        "waste reduction"
+    ],
+    "projects": [
+        {
+            "name": "Oil and Natural Gas Research Institute",
+            "description": "Worked on drilling and production platforms, assignments included analyzing sedimentary layers by shallow coring and determination of geological and chemical structure of the layers, providing technical reports on laboratory results."
+        },
+        {
+            "name": "Exploratory Drilling Site",
+            "description": "Worked on an exploratory drilling site located in mountainous region of northern Anatolia. Analyzing wastewater and handling hazardous material, providing graphs and related charts."
+        }
+    ]
+}
