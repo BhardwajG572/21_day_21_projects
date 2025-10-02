@@ -1,0 +1,553 @@
+[Μετάβαση στο περιεχόμενο](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1#bodyContent)
+Κύριο μενού
+Κύριο μενού
+μετακίνηση στην πλαϊνή μπάρα απόκρυψη
+Πλοήγηση 
+  * [Κύρια πύλη](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Επισκεφθείτε την αρχική σελίδα \[z\]")
+  * [Θεματικές πύλες](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%98%CE%AD%CE%BC%CE%B1%CF%84%CE%B1)
+  * [Προβεβλημένα λήμματα](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A0%CF%81%CE%BF%CE%B2%CE%B5%CE%B2%CE%BB%CE%B7%CE%BC%CE%AD%CE%BD%CE%B1_%CE%BB%CE%AE%CE%BC%CE%BC%CE%B1%CF%84%CE%B1)
+  * [Τρέχοντα γεγονότα](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%A4%CF%81%CE%AD%CF%87%CE%BF%CE%BD%CF%84%CE%B1_%CE%B3%CE%B5%CE%B3%CE%BF%CE%BD%CF%8C%CF%84%CE%B1 "Βρείτε βασικές πληροφορίες για τρέχοντα γεγονότα")
+  * [Τυχαίο λήμμα](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A4%CF%85%CF%87%CE%B1%CE%AF%CE%B1 "Φόρτωση μιας τυχαίας σελίδας \[x\]")
+  * [Ειδικές σελίδες](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CE%AD%CF%82%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B5%CF%82)
+
+
+Συμμετοχή 
+  * [Βοήθεια](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1 "Το μέρος για να βρείτε αυτό που ψάχνετε")
+  * [Πύλη Κοινότητας](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A0%CF%8D%CE%BB%CE%B7_%CE%9A%CE%BF%CE%B9%CE%BD%CF%8C%CF%84%CE%B7%CF%84%CE%B1%CF%82 "Σχετικά με το εγχείρημα, τι μπορείτε να κάνετε, πού μπορείτε να βρείτε τι")
+  * [Αγορά](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%91%CE%B3%CE%BF%CF%81%CE%AC)
+  * [Πρόσφατες αλλαγές](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A0%CF%81%CF%8C%CF%83%CF%86%CE%B1%CF%84%CE%B5%CF%82%CE%91%CE%BB%CE%BB%CE%B1%CE%B3%CE%AD%CF%82 "Λίστα πρόσφατων αλλαγών στο wiki \[r\]")
+  * [Επικοινωνία](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%95%CF%80%CE%B9%CE%BA%CE%BF%CE%B9%CE%BD%CF%89%CE%BD%CE%AF%CE%B1)
+
+
+[ ![](https://el.wikipedia.org/static/images/icons/wikipedia.png) ![Βικιπαίδεια](https://el.wikipedia.org/static/images/mobile/copyright/wikipedia-wordmark-el.svg) ![Η Ελεύθερη Εγκυκλοπαίδεια](https://el.wikipedia.org/static/images/mobile/copyright/wikipedia-tagline-el.svg) ](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)
+[Αναζήτηση ](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%91%CE%BD%CE%B1%CE%B6%CE%AE%CF%84%CE%B7%CF%83%CE%B7 "Αναζήτηση στη Βικιπαίδεια \[f\]")
+Αναζήτηση
+Εμφάνιση
+  * [Δωρεές](https://donate.wikimedia.org/?wmf_source=donate&wmf_medium=sidebar&wmf_campaign=el.wikipedia.org&uselang=el)
+  * [Δημιουργία λογαριασμού](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%94%CE%B7%CE%BC%CE%B9%CE%BF%CF%85%CF%81%CE%B3%CE%AF%CE%B1%CE%9B%CE%BF%CE%B3%CE%B1%CF%81%CE%B9%CE%B1%CF%83%CE%BC%CE%BF%CF%8D&returnto=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Σας ενθαρρύνουμε να δημιουργήσετε ένα λογαριασμό και να συνδεθείτε· ωστόσο, δεν είναι υποχρεωτικό")
+  * [Σύνδεση](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%8D%CE%BD%CE%B4%CE%B5%CF%83%CE%B7%CE%A7%CF%81%CE%AE%CF%83%CF%84%CE%B7&returnto=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Σας ενθαρρύνουμε να συνδεθείτε· ωστόσο, δεν είναι υποχρεωτικό \[o\]")
+
+
+Προσωπικά εργαλεία
+  * [Δωρεές](https://donate.wikimedia.org/?wmf_source=donate&wmf_medium=sidebar&wmf_campaign=el.wikipedia.org&uselang=el)
+  * [Δημιουργία λογαριασμού](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%94%CE%B7%CE%BC%CE%B9%CE%BF%CF%85%CF%81%CE%B3%CE%AF%CE%B1%CE%9B%CE%BF%CE%B3%CE%B1%CF%81%CE%B9%CE%B1%CF%83%CE%BC%CE%BF%CF%8D&returnto=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Σας ενθαρρύνουμε να δημιουργήσετε ένα λογαριασμό και να συνδεθείτε· ωστόσο, δεν είναι υποχρεωτικό")
+  * [Σύνδεση](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%8D%CE%BD%CE%B4%CE%B5%CF%83%CE%B7%CE%A7%CF%81%CE%AE%CF%83%CF%84%CE%B7&returnto=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Σας ενθαρρύνουμε να συνδεθείτε· ωστόσο, δεν είναι υποχρεωτικό \[o\]")
+
+
+#  Πύλη:Κύρια
+  * [Κύρια Σελίδα](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Προβολή της σελίδας θέματος \[c\]")
+  * [Συζήτηση](https://el.wikipedia.org/wiki/%CE%A3%CF%85%CE%B6%CE%AE%CF%84%CE%B7%CF%83%CE%B7_%CF%80%CF%8D%CE%BB%CE%B7%CF%82:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Συζήτηση για τη σελίδα περιεχομένου \[t\]")
+
+
+Ελληνικά
+  * [Ανάγνωση](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)
+  * [Προβολή κώδικα](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=edit "Αυτή η σελίδα είναι προστατευμένη.
+Μπορείτε να προβάλετε τον κώδικά της \[e\]")
+  * [Προβολή ιστορικού](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=history "Παλιές αναθεωρήσεις της σελίδας \[h\]")
+
+
+Εργαλεία
+Εργαλεία
+μετακίνηση στην πλαϊνή μπάρα απόκρυψη
+Ενέργειες 
+  * [Ανάγνωση](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)
+  * [Προβολή κώδικα](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=edit)
+  * [Προβολή ιστορικού](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=history)
+
+
+Γενικά 
+  * [Συνδέσεις προς εδώ](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A4%CE%B9%CE%A3%CF%85%CE%BD%CE%B4%CE%AD%CE%B5%CE%B9%CE%95%CE%B4%CF%8E/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Κατάλογος όλων των σελίδων wiki που έχουν συνδέσμους προς εδώ \[j\]")
+  * [Σχετικές αλλαγές](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%85%CE%BD%CE%B4%CE%B5%CE%B4%CE%B5%CE%BC%CE%AD%CE%BD%CE%B5%CF%82%CE%A0%CF%81%CF%8C%CF%83%CF%86%CE%B1%CF%84%CE%B5%CF%82%CE%91%CE%BB%CE%BB%CE%B1%CE%B3%CE%AD%CF%82/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Πρόσφατες αλλαγές σε σελίδες που παραπέμπουν οι σύνδεσμοι αυτής της σελίδας \[k\]")
+  * [Σταθερός σύνδεσμος](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&oldid=9720674 "Μόνιμος σύνδεσμος προς αυτήν την αναθεώρηση αυτής της σελίδας")
+  * [Πληροφορίες σελίδας](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=info "Περισσότερες πληροφορίες σχετικά με αυτήν τη σελίδα")
+  * [Λάβετε συντομευμένη διεύθυνση URL](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:UrlShortener&url=https%3A%2F%2Fel.wikipedia.org%2Fwiki%2F%25CE%25A0%25CF%258D%25CE%25BB%25CE%25B7%3A%25CE%259A%25CF%258D%25CF%2581%25CE%25B9%25CE%25B1)
+  * [Λήψη κωδικού QR](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:QrCode&url=https%3A%2F%2Fel.wikipedia.org%2Fwiki%2F%25CE%25A0%25CF%258D%25CE%25BB%25CE%25B7%3A%25CE%259A%25CF%258D%25CF%2581%25CE%25B9%25CE%25B1)
+
+
+Εκτύπωση/εξαγωγή 
+  * [Δημιουργία βιβλίου](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%85%CE%BB%CE%BB%CE%BF%CE%B3%CE%AE&bookcmd=book_creator&referer=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)
+  * [Κατέβασμα ως PDF](https://el.wikipedia.org/w/index.php?title=%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:DownloadAsPdf&page=%CE%A0%CF%8D%CE%BB%CE%B7%3A%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&action=show-download-screen)
+  * [Εκτυπώσιμη έκδοση](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&printable=yes "Εκτυπώσιμη έκδοση αυτής της σελίδας \[p\]")
+
+
+Σε άλλα εγχειρήματα 
+  * [Wikimedia Commons](https://commons.wikimedia.org/wiki/Main_Page)
+  * [Wikimedia Foundation](https://foundation.wikimedia.org/wiki/Home)
+  * [MediaWiki](https://www.mediawiki.org/wiki/MediaWiki)
+  * [Meta-Wiki](https://meta.wikimedia.org/wiki/Main_Page)
+  * [Wikimedia Outreach](https://outreach.wikimedia.org/wiki/Main_Page)
+  * [Πολύγλωσση Βικιθήκη](https://wikisource.org/wiki/Main_Page)
+  * [Wikispecies](https://species.wikimedia.org/wiki/Main_Page)
+  * [Βικιβιβλία](https://el.wikibooks.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Wikidata](https://www.wikidata.org/wiki/Wikidata:Main_Page)
+  * [Wikifunctions](https://www.wikifunctions.org/wiki/Wikifunctions:Main_Page)
+  * [Βικινέα](https://el.wikinews.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Βικιφθέγματα](https://el.wikiquote.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Βικιθήκη](https://el.wikisource.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Βικιεπιστήμιο](https://el.wikiversity.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Βικιταξίδια](https://el.wikivoyage.org/wiki/%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Βικιλεξικό](https://el.wiktionary.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CE%BB%CE%B5%CE%BE%CE%B9%CE%BA%CF%8C:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1_%CE%A3%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1)
+  * [Αντικείμενο Wikidata](https://www.wikidata.org/wiki/Special:EntityPage/Q5296 "Σύνδεσμος προς το συνδεδεμένο αντικείμενο δεδομένων \[g\]")
+
+
+Εμφάνιση
+μετακίνηση στην πλαϊνή μπάρα απόκρυψη
+Από τη Βικιπαίδεια, την ελεύθερη εγκυκλοπαίδεια
+##  [Βικιπαίδεια](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A3%CF%87%CE%B5%CF%84%CE%B9%CE%BA%CE%AC "Βικιπαίδεια:Σχετικά"),
+την [ελεύθερη](https://el.wikipedia.org/wiki/%CE%95%CE%BB%CE%B5%CF%8D%CE%B8%CE%B5%CF%81%CE%BF_%CF%80%CE%B5%CF%81%CE%B9%CE%B5%CF%87%CF%8C%CE%BC%CE%B5%CE%BD%CE%BF "Ελεύθερο περιεχόμενο") [εγκυκλοπαίδεια](https://el.wikipedia.org/wiki/%CE%95%CE%B3%CE%BA%CF%85%CE%BA%CE%BB%CE%BF%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1 "Εγκυκλοπαίδεια") που γράφουμε συμμετοχικά.
+[Τέχνη](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%A4%CE%AD%CF%87%CE%BD%CE%B7 "Πύλη:Τέχνη") — [Ιστορία](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%99%CF%83%CF%84%CE%BF%CF%81%CE%AF%CE%B1 "Πύλη:Ιστορία") — [Επιστήμη](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%95%CF%80%CE%B9%CF%83%CF%84%CE%AE%CE%BC%CE%B7 "Πύλη:Επιστήμη") — [Τεχνολογία](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%A4%CE%B5%CF%87%CE%BD%CE%BF%CE%BB%CE%BF%CE%B3%CE%AF%CE%B1 "Πύλη:Τεχνολογία") — [Γεωγραφία](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%93%CE%B5%CF%89%CE%B3%CF%81%CE%B1%CF%86%CE%AF%CE%B1 "Πύλη:Γεωγραφία")
+**[Κατάλογος θεματικών πυλών](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%98%CE%AD%CE%BC%CE%B1%CF%84%CE%B1 "Πύλη:Θέματα")**
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/DemetriosPolyorchetes.jpg/250px-DemetriosPolyorchetes.jpg)](https://el.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B5%CE%AF%CE%BF:DemetriosPolyorchetes.jpg)
+Ο **[Δημήτριος Α' Πολιορκητής](https://el.wikipedia.org/wiki/%CE%94%CE%B7%CE%BC%CE%AE%CF%84%CF%81%CE%B9%CE%BF%CF%82_%CE%BF_%CE%A0%CE%BF%CE%BB%CE%B9%CE%BF%CF%81%CE%BA%CE%B7%CF%84%CE%AE%CF%82 "Δημήτριος ο Πολιορκητής")** ([337](https://el.wikipedia.org/wiki/337_%CF%80.%CE%A7. "337 π.Χ.") - [283 π.Χ.](https://el.wikipedia.org/wiki/283_%CF%80.%CE%A7. "283 π.Χ.")) ήταν ένας από τους [Διαδόχους](https://el.wikipedia.org/wiki/%CE%95%CF%80%CE%AF%CE%B3%CE%BF%CE%BD%CE%BF%CE%B9_\(%CE%9C%CE%B5%CE%B3%CE%AC%CE%BB%CE%BF%CF%85_%CE%91%CE%BB%CE%B5%CE%BE%CE%AC%CE%BD%CE%B4%CF%81%CE%BF%CF%85\) "Επίγονοι \(Μεγάλου Αλεξάνδρου\)") του [Μεγάλου Αλεξάνδρου](https://el.wikipedia.org/wiki/%CE%91%CE%BB%CE%AD%CE%BE%CE%B1%CE%BD%CE%B4%CF%81%CE%BF%CF%82_%CE%BF_%CE%9C%CE%AD%CE%B3%CE%B1%CF%82 "Αλέξανδρος ο Μέγας"), κεντρικό πρόσωπο κατά τους αιματηρούς πολέμους που ξέσπασαν γύρω από την επικράτηση στα εδάφη της ανατολικής [Μεσογείου](https://el.wikipedia.org/wiki/%CE%9C%CE%B5%CF%83%CF%8C%CE%B3%CE%B5%CE%B9%CE%BF%CF%82_%CE%B8%CE%AC%CE%BB%CE%B1%CF%83%CF%83%CE%B1 "Μεσόγειος θάλασσα") μετά το θάνατο του [Μακεδόνα](https://el.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B1%CE%AF%CE%BF%CE%B9_%CE%9C%CE%B1%CE%BA%CE%B5%CE%B4%CF%8C%CE%BD%CE%B5%CF%82 "Αρχαίοι Μακεδόνες") στρατηλάτη. 
+Υπήρξε γιος του επιφανούς στρατηγού του Αλεξάνδρου, [Αντίγονου του Μονόφθαλμου](https://el.wikipedia.org/wiki/%CE%91%CE%BD%CF%84%CE%AF%CE%B3%CE%BF%CE%BD%CE%BF%CF%82_%CE%BF_%CE%9C%CE%BF%CE%BD%CF%8C%CF%86%CE%B8%CE%B1%CE%BB%CE%BC%CE%BF%CF%82 "Αντίγονος ο Μονόφθαλμος"), στρατεύματα του οποίου διοίκησε με μεγάλη ικανότητα και την [ασιατική](https://el.wikipedia.org/wiki/%CE%91%CF%83%CE%AF%CE%B1 "Ασία") αυτοκρατορία του οποίου αποπειράθηκε να αναβιώσει. Αφού απέτυχε να νικήσει τον [Πτολεμαίο](https://el.wikipedia.org/wiki/%CE%A0%CF%84%CE%BF%CE%BB%CE%B5%CE%BC%CE%B1%CE%AF%CE%BF%CF%82_%CE%BF_%CE%A3%CF%89%CF%84%CE%AE%CF%81 "Πτολεμαίος ο Σωτήρ"), σατράπη της [Αιγύπτου](https://el.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B1%CE%AF%CE%B1_%CE%91%CE%AF%CE%B3%CF%85%CF%80%CF%84%CE%BF%CF%82 "Αρχαία Αίγυπτος") το [312 π.Χ.](https://el.wikipedia.org/wiki/312_%CF%80.%CE%A7. "312 π.Χ."), και τους [Ναβαταίους](https://el.wikipedia.org/wiki/%CE%9D%CE%B1%CE%B2%CE%B1%CF%84%CE%B1%CE%AF%CE%BF%CE%B9 "Ναβαταίοι") [Άραβες](https://el.wikipedia.org/wiki/%CE%86%CF%81%CE%B1%CE%B2%CE%B5%CF%82 "Άραβες") λίγο αργότερα, ο Δημήτριος απελευθέρωσε την [Αθήνα](https://el.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B1%CE%AF%CE%B1_%CE%91%CE%B8%CE%AE%CE%BD%CE%B1 "Αρχαία Αθήνα") από τον [Κάσσανδρο](https://el.wikipedia.org/wiki/%CE%9A%CE%AC%CF%83%CF%83%CE%B1%CE%BD%CE%B4%CF%81%CE%BF%CF%82 "Κάσσανδρος") το [307 π.Χ.](https://el.wikipedia.org/wiki/307_%CF%80.%CE%A7. "307 π.Χ."), ενώ το [306 π.Χ.](https://el.wikipedia.org/wiki/306_%CF%80.%CE%A7. "306 π.Χ.") υποχρέωσε σε ταπεινωτική ήττα τον Πτολεμαίο στη [Σαλαμίνα](https://el.wikipedia.org/wiki/%CE%A3%CE%B1%CE%BB%CE%B1%CE%BC%CE%AF%CE%BD%CE%B1_%CE%9A%CF%8D%CF%80%CF%81%CE%BF%CF%85 "Σαλαμίνα Κύπρου") της [Κύπρου](https://el.wikipedia.org/wiki/%CE%9A%CF%8D%CF%80%CF%81%CE%BF%CF%82 "Κύπρος"). Οι θαυμαστές επιδόσεις του στην ανεπιτυχή [πολιορκία της Ρόδου](https://el.wikipedia.org/wiki/%CE%A0%CE%BF%CE%BB%CE%B9%CE%BF%CF%81%CE%BA%CE%AF%CE%B1_%CF%84%CE%B7%CF%82_%CE%A1%CF%8C%CE%B4%CE%BF%CF%85_\(305%E2%80%93304_%CF%80.%CE%A7.\) "Πολιορκία της Ρόδου \(305–304 π.Χ.\)") το [305 π.Χ.](https://el.wikipedia.org/wiki/305_%CF%80.%CE%A7. "305 π.Χ.") του κέρδισαν την επωνυμία _«ο Πολιορκητής»_. 
+Σαρωτικός όταν πραγματοποιούσε επιθέσεις και εξαιρετικά ικανός στην κατασκευή πολιορκητικών μηχανών, ο Δημήτριος έμεινε στην ιστορία για τις εντυπωσιακού μεγέθους και φιλοδοξίας εκστρατείες που διεξήγαγε, για την σκανδαλώδη προσωπική του ζωή και για τη μοναδική του ικανότητα να αναγεννάται από τις στάχτες του, γυρίζοντας την τύχη του σε κάθε καταστροφή που του επεφύλαξε ποτέ η Μοίρα, με εξαίρεση φυσικά την τελευταία. _[(Διαβάστε το υπόλοιπο λήμμα...)](https://el.wikipedia.org/wiki/%CE%94%CE%B7%CE%BC%CE%AE%CF%84%CF%81%CE%B9%CE%BF%CF%82_%CE%BF_%CE%A0%CE%BF%CE%BB%CE%B9%CE%BF%CF%81%CE%BA%CE%B7%CF%84%CE%AE%CF%82 "Δημήτριος ο Πολιορκητής")_
+[Άλλα προβεβλημένα λήμματα...](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A0%CF%81%CE%BF%CE%B2%CE%B5%CE%B2%CE%BB%CE%B7%CE%BC%CE%AD%CE%BD%CE%B1_%CE%BB%CE%AE%CE%BC%CE%BC%CE%B1%CF%84%CE%B1 "Βικιπαίδεια:Προβεβλημένα λήμματα")
+  * [331 π.Χ.](https://el.wikipedia.org/wiki/331_%CF%80.%CE%A7. "331 π.Χ.") - Ο [Μέγας Αλέξανδρος](https://el.wikipedia.org/wiki/%CE%9C%CE%AD%CE%B3%CE%B1%CF%82_%CE%91%CE%BB%CE%AD%CE%BE%CE%B1%CE%BD%CE%B4%CF%81%CE%BF%CF%82 "Μέγας Αλέξανδρος") νικά στα [Γαυγάμηλα](https://el.wikipedia.org/wiki/%CE%93%CE%B1%CF%85%CE%B3%CE%AC%CE%BC%CE%B7%CE%BB%CE%B1 "Γαυγάμηλα") τον βασιλέα των Περσών [Δαρείο](https://el.wikipedia.org/wiki/%CE%94%CE%B1%CF%81%CE%B5%CE%AF%CE%BF%CF%82_%CE%93%27 "Δαρείος Γ'"). Με την αποφασιστική αυτή νίκη ο [Περσικός](https://el.wikipedia.org/wiki/%CE%A0%CE%B5%CF%81%CF%83%CE%AF%CE%B1 "Περσία") στρατός διαλύεται.
+  * [1960](https://el.wikipedia.org/wiki/1960 "1960") - Αν και η συμφωνία για την ανεξαρτοποίηση της [Κύπρου](https://el.wikipedia.org/wiki/%CE%9A%CF%8D%CF%80%CF%81%CE%BF%CF%82 "Κύπρος") έγινε πολύ νωρίτερα, η μέρα καθιερώνεται ως ημέρα ανεξαρτησίας της [Κυπριακής Δημοκρατίας](https://el.wikipedia.org/wiki/%CE%9A%CF%85%CF%80%CF%81%CE%B9%CE%B1%CE%BA%CE%AE_%CE%94%CE%B7%CE%BC%CE%BF%CE%BA%CF%81%CE%B1%CF%84%CE%AF%CE%B1 "Κυπριακή Δημοκρατία").
+  * [1994](https://el.wikipedia.org/wiki/1994 "1994") - Το [Παλάου](https://el.wikipedia.org/wiki/%CE%A0%CE%B1%CE%BB%CE%AC%CE%BF%CF%85 "Παλάου") γίνεται ανεξάρτητο κράτος.
+
+
+  
+
+[Περισσότερα για αυτό τον μήνα](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1/%CE%95%CF%80%CE%B9%CE%BB%CE%B5%CE%B3%CE%BC%CE%AD%CE%BD%CE%B1_%CE%93%CE%B5%CE%B3%CE%BF%CE%BD%CF%8C%CF%84%CE%B1/%CE%9F%CE%BA%CF%84%CF%89%CE%B2%CF%81%CE%AF%CE%BF%CF%85 "Πύλη:Κύρια/Επιλεγμένα Γεγονότα/Οκτωβρίου") ή [αυτή την ημέρα](https://el.wikipedia.org/wiki/1_%CE%9F%CE%BA%CF%84%CF%89%CE%B2%CF%81%CE%AF%CE%BF%CF%85 "1 Οκτωβρίου")
+[Συνεχιζόμενα](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%A4%CF%81%CE%AD%CF%87%CE%BF%CE%BD%CF%84%CE%B1_%CE%B3%CE%B5%CE%B3%CE%BF%CE%BD%CF%8C%CF%84%CE%B1 "Πύλη:Τρέχοντα γεγονότα"): 
+  * [Πόλεμος Χαμάς-Ισραήλ](https://el.wikipedia.org/wiki/%CE%A0%CF%8C%CE%BB%CE%B5%CE%BC%CE%BF%CF%82_%CE%A7%CE%B1%CE%BC%CE%AC%CF%82-%CE%99%CF%83%CF%81%CE%B1%CE%AE%CE%BB_\(2023-%CF%83%CE%AE%CE%BC%CE%B5%CF%81%CE%B1\) "Πόλεμος Χαμάς-Ισραήλ \(2023-σήμερα\)")
+  * [Εισβολή της Ρωσίας στην Ουκρανία](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CF%83%CE%B2%CE%BF%CE%BB%CE%AE_%CF%84%CE%B7%CF%82_%CE%A1%CF%89%CF%83%CE%AF%CE%B1%CF%82_%CF%83%CF%84%CE%B7%CE%BD_%CE%9F%CF%85%CE%BA%CF%81%CE%B1%CE%BD%CE%AF%CE%B1 "Εισβολή της Ρωσίας στην Ουκρανία")
+
+
+[Περισσότερα τρέχοντα γεγονότα...](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%A4%CF%81%CE%AD%CF%87%CE%BF%CE%BD%CF%84%CE%B1_%CE%B3%CE%B5%CE%B3%CE%BF%CE%BD%CF%8C%CF%84%CE%B1 "Πύλη:Τρέχοντα γεγονότα")
+Η **Βικιπαίδεια** ή **Wikipedia** είναι ένα συλλογικό εγκυκλοπαιδικό εγχείρημα που έχει συσταθεί στο Διαδίκτυο, παγκόσμιο, πολύγλωσσο, που λειτουργεί με την αρχή του [wiki](https://el.wikipedia.org/wiki/Wiki "Wiki"). Η Βικιπαίδεια έχει ως στόχο να παρέχει ελεύθερα επαναχρησιμοποιήσιμο περιεχόμενο, με αντικειμενικά και επαληθεύσιμα στοιχεία, που ο καθένας μπορεί να τροποποιήσει και να βελτιώσει. 
+Το έργο ορίζεται από τις [ιδρυτικές αρχές](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A0%CE%AD%CE%BD%CF%84%CE%B5_%CE%B8%CE%B5%CE%BC%CE%AD%CE%BB%CE%B9%CE%B1 "Βικιπαίδεια:Πέντε θεμέλια"). Το περιεχόμενό του είναι υπό την άδεια [Creative Commons BY-SA](http://creativecommons.org/licenses/by-sa/3.0/deed.el) και μπορεί να αντιγραφεί και να επαναχρησιμοποιηθεί στο πλαίσιο της ίδιας άδειας –ακόμα και για εμπορικούς σκοπούς– με την επιφύλαξη της συμμόρφωσης με τους όρους της άδειας. 
+Σήμερα, η [Ελληνική Βικιπαίδεια](https://el.wikipedia.org/wiki/%CE%95%CE%BB%CE%BB%CE%B7%CE%BD%CE%B9%CE%BA%CE%AE_%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1 "Ελληνική Βικιπαίδεια") περιλαμβάνει:   
+---  
+[258.924](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%84%CE%B1%CF%84%CE%B9%CF%83%CF%84%CE%B9%CE%BA%CE%AC "Ειδικό:Στατιστικά")  
+λήμματα  |  [2.042](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C:%CE%A3%CF%84%CE%B1%CF%84%CE%B9%CF%83%CF%84%CE%B9%CE%BA%CE%AC "Ειδικό:Στατιστικά")  
+ενεργούς εγγεγραμμένους συνεισφέροντες   
+Ο καθένας μπορεί διαδικτυακά να δημοσιεύσει άμεσα περιεχόμενο, αρκεί να ακολουθήσει τους βασικούς [κανόνες](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A0%CE%BF%CE%BB%CE%B9%CF%84%CE%B9%CE%BA%CE%AE "Βικιπαίδεια:Πολιτική") που καθορίζονται από την κοινότητα, π.χ. την [επαληθευσιμότητα του περιεχομένου](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%95%CF%80%CE%B1%CE%BB%CE%B7%CE%B8%CE%B5%CF%85%CF%83%CE%B9%CE%BC%CF%8C%CF%84%CE%B7%CF%84%CE%B1 "Βικιπαίδεια:Επαληθευσιμότητα") ή την [καταλληλότητα των θεμάτων](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%95%CE%B3%CE%BA%CF%85%CE%BA%CE%BB%CE%BF%CF%80%CE%B1%CE%B9%CE%B4%CE%B9%CE%BA%CF%8C%CF%84%CE%B7%CF%84%CE%B1 "Βικιπαίδεια:Εγκυκλοπαιδικότητα"). 
+Πολλές [σελίδες βοήθειας](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1 "Βικιπαίδεια:Βοήθεια") είναι διαθέσιμες, συμπεριλαμβανομένων του [πως να ξεκινήσετε ένα λήμμα](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%9F%CE%B4%CE%B7%CE%B3%CF%8C%CF%82_%CE%BB%CE%AE%CE%BC%CE%BC%CE%B1%CF%84%CE%BF%CF%82 "Βικιπαίδεια:Οδηγός λήμματος"), να [επεξεργαστείτε ένα λήμμα](https://el.wikipedia.org/wiki/%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1:%CE%95%CE%B9%CF%83%CE%B1%CE%B3%CF%89%CE%B3%CE%AE_%CF%83%CF%84%CE%B7%CE%BD_%CE%B5%CF%80%CE%B5%CE%BE%CE%B5%CF%81%CE%B3%CE%B1%CF%83%CE%AF%CE%B1_%CE%BC%CE%B5_VisualEditor "Βοήθεια:Εισαγωγή στην επεξεργασία με VisualEditor") ή να [τοποθετήσετε μια εικόνα](https://el.wikipedia.org/wiki/%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1:%CE%95%CE%B9%CF%83%CE%B1%CE%B3%CF%89%CE%B3%CE%AE_%CF%83%CF%84%CE%B9%CF%82_%CE%B5%CE%B9%CE%BA%CF%8C%CE%BD%CE%B5%CF%82_%CE%BC%CE%B5_%CF%84%CE%BF%CE%BD_VisualEditor "Βοήθεια:Εισαγωγή στις εικόνες με τον VisualEditor"). Μη διστάσετε να [θέσετε οποιοδήποτε ερώτημα](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1_%CF%87%CF%81%CE%B7%CF%83%CF%84%CF%8E%CE%BD "Βικιπαίδεια:Βοήθεια χρηστών"). 
+[Εισαγωγική βοήθειας](https://el.wikipedia.org/wiki/%CE%92%CE%BF%CE%AE%CE%B8%CE%B5%CE%B9%CE%B1:%CE%95%CE%B9%CF%83%CE%B1%CE%B3%CF%89%CE%B3%CE%AE "Βοήθεια:Εισαγωγή")
+  * Χρονολογικά ο **[πρώτος σύγχρονος Ολυμπιονίκης](https://el.wikipedia.org/wiki/%CE%98%CE%B5%CF%81%CE%B9%CE%BD%CE%BF%CE%AF_%CE%9F%CE%BB%CF%85%CE%BC%CF%80%CE%B9%CE%B1%CE%BA%CE%BF%CE%AF_%CE%91%CE%B3%CF%8E%CE%BD%CE%B5%CF%82_1896 "Θερινοί Ολυμπιακοί Αγώνες 1896")** είναι ο [Αμερικανός](https://el.wikipedia.org/wiki/%CE%97%CE%A0%CE%91 "ΗΠΑ") Τζέιμς Κόνολι, νικητής στο [άλμα τριπλούν](https://el.wikipedia.org/wiki/%CE%86%CE%BB%CE%BC%CE%B1_%CF%84%CF%81%CE%B9%CF%80%CE%BB%CE%BF%CF%8D%CE%BD_%CF%83%CF%84%CE%B9%CF%82_%CE%9F%CE%BB%CF%85%CE%BC%CF%80%CE%B9%CE%AC%CE%B4%CE%B5%CF%82 "Άλμα τριπλούν στις Ολυμπιάδες");
+  * Η **[αναίρεση υπέρ του νόμου](https://el.wikipedia.org/wiki/%CE%91%CE%BD%CE%B1%CE%AF%CF%81%CE%B5%CF%83%CE%B7_%CF%85%CF%80%CE%AD%CF%81_%CF%84%CE%BF%CF%85_%CE%BD%CF%8C%CE%BC%CE%BF%CF%85 "Αναίρεση υπέρ του νόμου")** είναι ένα ιδιότυπο [ένδικο μέσο](https://el.wikipedia.org/wiki/%CE%88%CE%BD%CE%B4%CE%B9%CE%BA%CE%BF_%CE%BC%CE%AD%CF%83%CE%BF "Ένδικο μέσο") που δικαιούται να ασκήσει μόνο ο [Εισαγγελέας](https://el.wikipedia.org/wiki/%CE%95%CE%B9%CF%83%CE%B1%CE%B3%CE%B3%CE%B5%CE%BB%CE%AD%CE%B1%CF%82 "Εισαγγελέας") του [Αρείου Πάγου](https://el.wikipedia.org/wiki/%CE%86%CF%81%CE%B5%CE%B9%CE%BF%CF%82_%CE%A0%CE%AC%CE%B3%CE%BF%CF%82 "Άρειος Πάγος");
+  * Η **[αγελάδα](https://el.wikipedia.org/wiki/%CE%91%CE%B3%CE%B5%CE%BB%CE%AC%CE%B4%CE%B1 "Αγελάδα")** είναι το θηλυκό του μηρυκαστικού [ζώου](https://el.wikipedia.org/wiki/%CE%96%CF%8E%CE%BF "Ζώο") του γένους βους, αρχική πατρίδα του οποίου θεωρείται η [Ασία](https://el.wikipedia.org/wiki/%CE%91%CF%83%CE%AF%CE%B1 "Ασία");
+
+
+[Προτάσεις](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1/%CE%93%CE%BD%CF%89%CF%81%CE%AF%CE%B6%CE%B5%CF%84%CE%B5_%CF%8C%CF%84%CE%B9.../%CE%A0%CF%81%CE%BF%CF%84%CE%AC%CF%83%CE%B5%CE%B9%CF%82 "Πύλη:Κύρια/Γνωρίζετε ότι.../Προτάσεις") · [Αρχείο](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1/%CE%93%CE%BD%CF%89%CF%81%CE%AF%CE%B6%CE%B5%CF%84%CE%B5_%CF%8C%CF%84%CE%B9.../%CE%91%CF%81%CF%87%CE%B5%CE%AF%CE%BF "Πύλη:Κύρια/Γνωρίζετε ότι.../Αρχείο")
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Wikimedia-logo.svg/60px-Wikimedia-logo.svg.png)
+Η λειτουργία της Βικιπαίδειας υποστηρίζεται από τον μη κερδοσκοπικό οργανισμό [Wikimedia Foundation](https://el.wikipedia.org/wiki/Wikimedia "Wikimedia"), ο οποίος λειτουργεί και άλλους πολύγλωσσους και [ελεύθερου περιεχομένου](https://el.wikipedia.org/wiki/%CE%95%CE%BB%CE%B5%CF%8D%CE%B8%CE%B5%CF%81%CE%BF_%CF%80%CE%B5%CF%81%CE%B9%CE%B5%CF%87%CF%8C%CE%BC%CE%B5%CE%BD%CE%BF "Ελεύθερο περιεχόμενο") ιστοχώρους:
+[![Commons logo](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Commons-logo.svg/40px-Commons-logo.svg.png)](https://commons.wikimedia.org/wiki/ "Commons logo")
+**[Commons](https://commons.wikimedia.org/)**   
+Κοινό αποθετήριο πολυμέσων 
+[![Wikisource](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4c/Wikisource-logo.svg/40px-Wikisource-logo.svg.png)](https://el.wikisource.org/wiki/ "Wikisource")
+**[Βικιθήκη](https://el.wikisource.org/)**   
+Βιβλιοθήκη ελεύθερων πηγών 
+[![Wikidata logo](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Wikidata-logo.svg/60px-Wikidata-logo.svg.png)](https://www.wikidata.org/wiki/ "Wikidata logo")
+**[Wikidata](https://www.wikidata.org/)**   
+Ελεύθερη γνωσιακή βάση 
+[![Wikibooks logo](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Wikibooks-logo.svg/40px-Wikibooks-logo.svg.png)](https://el.wikibooks.org/wiki/ "Wikibooks logo")
+**[Βικιβιβλία](https://el.wikibooks.org/)**   
+Ελεύθερα εκπαιδευτικά εγχειρίδια 
+[![Wiktionary logo](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ec/Wiktionary-logo.svg/40px-Wiktionary-logo.svg.png)](https://el.wiktionary.org/wiki/ "Wiktionary logo")
+**[Βικιλεξικό](https://el.wiktionary.org/)**   
+Ελεύθερο λεξικό 
+[![Wikinews logo](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Wikinews-logo.svg/60px-Wikinews-logo.svg.png)](https://el.wikinews.org/wiki/ "Wikinews logo")
+**[Βικινέα](https://el.wikinews.org/)**   
+Ελεύθερη ειδησεογραφία 
+[![Wikiquote logo](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Wikiquote-logo.svg/40px-Wikiquote-logo.svg.png)](https://el.wikiquote.org/wiki/ "Wikiquote logo")
+**[Βικιφθέγματα](https://el.wikiquote.org/)**   
+Συλλογή αποφθεγμάτων 
+[![Wikivoyage logo](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Wikivoyage-Logo-v3-icon.svg/40px-Wikivoyage-Logo-v3-icon.svg.png)](https://en.wikivoyage.org/wiki/ "Wikivoyage logo")
+**[Βικιταξίδια](https://el.wikivoyage.org/)**   
+Ταξιδιωτικός οδηγός 
+[![Wikispecies logo](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/Wikispecies-logo.svg/40px-Wikispecies-logo.svg.png)](https://species.wikimedia.org/wiki/ "Wikispecies logo")
+**[Wikispecies](https://species.wikimedia.org/)**   
+Ταξινομικός κατάλογος 
+[![Wikiversity logo](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Wikiversity_logo_2017.svg/60px-Wikiversity_logo_2017.svg.png)](https://el.wikiversity.org/wiki/ "Wikiversity logo")
+**[Βικιεπιστήμιο](https://el.wikiversity.org/)**   
+Μαθησιακά εργαλεία 
+[![MediaWiki logo](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/MediaWiki-2020-icon.svg/40px-MediaWiki-2020-icon.svg.png)](https://www.mediawiki.org/wiki/ "MediaWiki logo")
+**[MediaWiki](https://mediawiki.org/)**   
+Ανάπτυξη λογισμικού Wiki 
+[![Meta logo](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Wikimedia_Community_Logo.svg/40px-Wikimedia_Community_Logo.svg.png)](https://meta.wikimedia.org/wiki/ "Meta logo")
+**[Meta-Wiki](https://meta.wikimedia.org/)**   
+Συντονισμός εγχειρημάτων Wikimedia 
+Ανακτήθηκε από "[https://el.wikipedia.org/w/index.php?title=Πύλη:Κύρια&oldid=9720674](https://el.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&oldid=9720674)"
+353 γλώσσες
+  * [Qafár af](https://aa.wikipedia.org/wiki/Main_Page "Main Page – Αφάρ")
+  * [Аԥсшәа](https://ab.wikipedia.org/wiki/%D0%98%D1%85%D0%B0%D0%B4%D0%BE%D1%83_%D0%B0%D0%B4%D0%B0%D2%9F%D1%8C%D0%B0 "Ихадоу адаҟьа – Αμπχαζικά")
+  * [Acèh](https://ace.wikipedia.org/wiki/%C3%94n_Keue "Ôn Keue – Ατσινιζικά")
+  * [Адыгабзэ](https://ady.wikipedia.org/wiki/%D0%9D%D1%8D%D0%BA%D3%80%D1%83%D0%B1%D0%B3%D1%8A%D0%BE_%D1%88%D1%8A%D1%85%D1%8C%D0%B0%D3%80 "НэкӀубгъо шъхьаӀ – Αντιγκέα")
+  * [Afrikaans](https://af.wikipedia.org/wiki/Tuisblad "Tuisblad – Αφρικάανς")
+  * [Alemannisch](https://als.wikipedia.org/wiki/Wikipedia:Houptsyte "Wikipedia:Houptsyte – Γερμανικά Ελβετίας")
+  * [Алтай тил](https://alt.wikipedia.org/wiki/%D0%A2%D3%A7%D1%81_%D0%B1%D3%B1%D0%BA "Тӧс бӱк – Νότια Αλτάι")
+  * [አማርኛ](https://am.wikipedia.org/wiki/%E1%8B%8B%E1%8A%93%E1%8B%8D_%E1%8C%88%E1%8C%BD "ዋናው ገጽ – Αμχαρικά")
+  * [Pangcah](https://ami.wikipedia.org/wiki/Sa%E2%80%99ayayaw_pising_no_tyin-naw "Sa’ayayaw pising no tyin-naw – Amis")
+  * [Aragonés](https://an.wikipedia.org/wiki/Portalada "Portalada – Αραγονικά")
+  * [Ænglisc](https://ang.wikipedia.org/wiki/Heafodtramet "Heafodtramet – Παλαιά Αγγλικά")
+  * [Obolo](https://ann.wikipedia.org/wiki/Uwu "Uwu – Ομπόλο")
+  * [अंगिका](https://anp.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुख्य पृष्ठ – Ανγκικά")
+  * [العربية](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9 "الصفحة الرئيسة – Αραβικά")
+  * [ܐܪܡܝܐ](https://arc.wikipedia.org/wiki/%DC%A6%DC%90%DC%AC%DC%90_%DC%AA%DC%9D%DC%AB%DC%9D%DC%AC%DC%90 "ܦܐܬܐ ܪܝܫܝܬܐ – Αραμαϊκά")
+  * [الدارجة](https://ary.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D9%84%D9%88%D9%84%D8%A7 "الصفحة اللولا – Moroccan Arabic")
+  * [مصرى](https://arz.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D9%87_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D9%87 "الصفحه الرئيسيه – Egyptian Arabic")
+  * [অসমীয়া](https://as.wikipedia.org/wiki/%E0%A6%AC%E0%A7%87%E0%A6%9F%E0%A7%81%E0%A6%AA%E0%A6%BE%E0%A6%A4 "বেটুপাত – Ασαμικά")
+  * [Asturianu](https://ast.wikipedia.org/wiki/Portada "Portada – Αστουριανά")
+  * [Atikamekw](https://atj.wikipedia.org/wiki/Otitikowin "Otitikowin – Ατικαμέκ")
+  * [Авар](https://av.wikipedia.org/wiki/%D0%91%D0%B5%D1%82%D3%80%D0%B5%D1%80%D0%B0%D0%B1_%D0%B3%D1%8C%D1%83%D0%BC%D0%B5%D1%80 "БетӀераб гьумер – Αβαρικά")
+  * [Kotava](https://avk.wikipedia.org/wiki/Xadola "Xadola – Kotava")
+  * [अवधी](https://awa.wikipedia.org/wiki/%E0%A4%AA%E0%A5%8D%E0%A4%B0%E0%A4%A7%E0%A4%BE%E0%A4%A8_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "प्रधान पन्ना – Αγουαντί")
+  * [Aymar aru](https://ay.wikipedia.org/wiki/Nayriri_u%C3%B1stawi "Nayriri uñstawi – Αϊμάρα")
+  * [Azərbaycanca](https://az.wikipedia.org/wiki/Ana_s%C9%99hif%C9%99 "Ana səhifə – Αζερμπαϊτζανικά")
+  * [تۆرکجه](https://azb.wikipedia.org/wiki/%D8%A2%D9%86%D8%A7_%D8%B5%D9%81%D8%AD%D9%87 "آنا صفحه – South Azerbaijani")
+  * [Башҡортса](https://ba.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B8%D1%82 "Баш бит – Μπασκίρ")
+  * [Basa Bali](https://ban.wikipedia.org/wiki/Kaca_Utama "Kaca Utama – Μπαλινίζ")
+  * [Boarisch](https://bar.wikipedia.org/wiki/Wikipedia:Hoamseitn "Wikipedia:Hoamseitn – Bavarian")
+  * [Žemaitėška](https://bat-smg.wikipedia.org/wiki/P%C4%97rms_poslapis "Pėrms poslapis – Samogitian")
+  * [Batak Toba](https://bbc.wikipedia.org/wiki/Pogu_ni_Alaman "Pogu ni Alaman – Batak Toba")
+  * [Bikol Central](https://bcl.wikipedia.org/wiki/Panginot_na_Pahina "Panginot na Pahina – Central Bikol")
+  * [Bajau Sama](https://bdr.wikipedia.org/wiki/Tekokon_Laman "Tekokon Laman – West Coast Bajau")
+  * [Беларуская](https://be.wikipedia.org/wiki/%D0%93%D0%B0%D0%BB%D0%BE%D1%9E%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D0%B0%D1%80%D0%BE%D0%BD%D0%BA%D0%B0 "Галоўная старонка – Λευκορωσικά")
+  * [Беларуская (тарашкевіца)](https://be-tarask.wikipedia.org/wiki/%D0%93%D0%B0%D0%BB%D0%BE%D1%9E%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D0%B0%D1%80%D0%BE%D0%BD%D0%BA%D0%B0 "Галоўная старонка – Belarusian \(Taraškievica orthography\)")
+  * [Betawi](https://bew.wikipedia.org/wiki/Bal%C3%A9-bal%C3%A9 "Balé-balé – Betawi")
+  * [Български](https://bg.wikipedia.org/wiki/%D0%9D%D0%B0%D1%87%D0%B0%D0%BB%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Начална страница – Βουλγαρικά")
+  * [भोजपुरी](https://bh.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "मुख्य पन्ना – Bhojpuri")
+  * [Bislama](https://bi.wikipedia.org/wiki/Nambawan_Pej "Nambawan Pej – Μπισλάμα")
+  * [Banjar](https://bjn.wikipedia.org/wiki/Laman_Tatambaian "Laman Tatambaian – Banjar")
+  * [ပအိုဝ်ႏဘာႏသာႏ](https://blk.wikipedia.org/wiki/%E1%80%A1%E1%80%93%E1%80%AD%E1%80%80%E1%80%9C%E1%80%AD%E1%80%90%E1%80%BA%E1%80%99%E1%80%B2%E1%80%B7%E1%80%84%E1%80%AB "အဓိကလိတ်မဲ့ငါ – Pa'O")
+  * [Bamanankan](https://bm.wikipedia.org/wiki/Ny%C9%9B_f%C9%94l%C9%94 "Nyɛ fɔlɔ – Μπαμπάρα")
+  * [বাংলা](https://bn.wikipedia.org/wiki/%E0%A6%AA%E0%A7%8D%E0%A6%B0%E0%A6%A7%E0%A6%BE%E0%A6%A8_%E0%A6%AA%E0%A6%BE%E0%A6%A4%E0%A6%BE "প্রধান পাতা – Βεγγαλικά")
+  * [བོད་ཡིག](https://bo.wikipedia.org/wiki/%E0%BD%82%E0%BD%99%E0%BD%BC%E0%BC%8B%E0%BD%84%E0%BD%BC%E0%BD%A6%E0%BC%8D "གཙོ་ངོས། – Θιβετιανά")
+  * [বিষ্ণুপ্রিয়া মণিপুরী](https://bpy.wikipedia.org/wiki/%E0%A6%AA%E0%A6%AF%E0%A6%BC%E0%A6%B2%E0%A6%BE_%E0%A6%AA%E0%A6%BE%E0%A6%A4%E0%A6%BE "পয়লা পাতা – Bishnupriya")
+  * [Brezhoneg](https://br.wikipedia.org/wiki/Degemer "Degemer – Βρετονικά")
+  * [Bosanski](https://bs.wikipedia.org/wiki/Po%C4%8Detna_strana "Početna strana – Βοσνιακά")
+  * [Batak Mandailing](https://btm.wikipedia.org/wiki/Alaman_Utamo "Alaman Utamo – Batak Mandailing")
+  * [Basa Ugi](https://bug.wikipedia.org/wiki/Watangpola "Watangpola – Μπουγκίζ")
+  * [Буряад](https://bxr.wikipedia.org/wiki/%D0%9D%D1%8E%D1%83%D1%80_%D1%85%D1%83%D1%83%D0%B4%D0%B0%D2%BB%D0%B0%D0%BD "Нюур хуудаһан – Russia Buriat")
+  * [Català](https://ca.wikipedia.org/wiki/Portada "Portada – Καταλανικά")
+  * [Chavacano de Zamboanga](https://cbk-zam.wikipedia.org/wiki/El_Primero_Pagina "El Primero Pagina – Chavacano")
+  * [閩東語 / Mìng-dĕ̤ng-ngṳ̄](https://cdo.wikipedia.org/wiki/T%C3%A0u_Hi%C4%95k "Tàu Hiĕk – Mindong")
+  * [Нохчийн](https://ce.wikipedia.org/wiki/%D0%9A%D0%BE%D1%8C%D1%80%D1%82%D0%B0_%D0%B0%D0%B3%D3%80%D0%BE "Коьрта агӀо – Τσετσενικά")
+  * [Cebuano](https://ceb.wikipedia.org/wiki/Unang_Panid "Unang Panid – Σεμπουάνο")
+  * [Chamoru](https://ch.wikipedia.org/wiki/Fanhaluman "Fanhaluman – Τσαμόρο")
+  * [Chahta anumpa](https://cho.wikipedia.org/wiki/Main_Page "Main Page – Τσόκτο")
+  * [ᏣᎳᎩ](https://chr.wikipedia.org/wiki/%E1%8E%A4%E1%8E%B5%E1%8E%AE%E1%8E%B5%E1%8F%8D%E1%8F%97 "ᎤᎵᎮᎵᏍᏗ – Τσερόκι")
+  * [Tsetsêhestâhese](https://chy.wikipedia.org/wiki/Va%27ohtama "Va'ohtama – Τσεγιέν")
+  * [کوردی](https://ckb.wikipedia.org/wiki/%D8%AF%DB%95%D8%B3%D8%AA%D9%BE%DB%8E%DA%A9 "دەستپێک – Κεντρικά Κουρδικά")
+  * [Corsu](https://co.wikipedia.org/wiki/Pagina_maestra "Pagina maestra – Κορσικανικά")
+  * [Nēhiyawēwin / ᓀᐦᐃᔭᐍᐏᐣ](https://cr.wikipedia.org/wiki/%E1%93%83%E1%94%A5%E1%91%95%E1%92%BB%E1%90%B9%E1%94%85%E1%91%8C%E1%92%8B%E1%93%82%E1%91%B2%E1%93%90 "ᓃᔥᑕᒻᐹᔅᑌᒋᓂᑲᓐ – Κρι")
+  * [Qırımtatarca](https://crh.wikipedia.org/wiki/Ba%C5%9F_Saife "Baş Saife – Τουρκικά Κριμαίας")
+  * [Čeština](https://cs.wikipedia.org/wiki/Hlavn%C3%AD_strana "Hlavní strana – Τσεχικά")
+  * [Kaszëbsczi](https://csb.wikipedia.org/wiki/Prz%C3%A9dn%C3%B4_starna "Przédnô starna – Κασούμπιαν")
+  * [Словѣньскъ / ⰔⰎⰑⰂⰡⰐⰠⰔⰍⰟ](https://cu.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D1%8C%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Главьна страница – Εκκλησιαστικά Σλαβικά")
+  * [Чӑвашла](https://cv.wikipedia.org/wiki/%D0%A2%C4%95%D0%BF_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Тĕп страница – Τσουβασικά")
+  * [Cymraeg](https://cy.wikipedia.org/wiki/Hafan "Hafan – Ουαλικά")
+  * [Dansk](https://da.wikipedia.org/wiki/Forside "Forside – Δανικά")
+  * [Dagbanli](https://dag.wikipedia.org/wiki/Sol%C9%94%C9%A3u "Solɔɣu – Dagbani")
+  * [Deutsch](https://de.wikipedia.org/wiki/Wikipedia:Hauptseite "Wikipedia:Hauptseite – Γερμανικά")
+  * [Dagaare](https://dga.wikipedia.org/wiki/A_Gamp%C9%9Bl%C9%9B_zu "A Gampɛlɛ zu – Southern Dagaare")
+  * [Thuɔŋjäŋ](https://din.wikipedia.org/wiki/Apam_k%C3%ABd%C3%AFt "Apam këdït – Ντίνκα")
+  * [Zazaki](https://diq.wikipedia.org/wiki/Pela_Seri "Pela Seri – Dimli")
+  * [Dolnoserbski](https://dsb.wikipedia.org/wiki/G%C5%82owny_bok "Głowny bok – Κάτω Σορβικά")
+  * [Kadazandusun](https://dtp.wikipedia.org/wiki/Natad_Tagayo "Natad Tagayo – Central Dusun")
+  * [डोटेली](https://dty.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "मुख्य पन्ना – Doteli")
+  * [ދިވެހިބަސް](https://dv.wikipedia.org/wiki/%DE%89%DE%A6%DE%87%DE%A8_%DE%9E%DE%A6%DE%8A%DE%B0%DE%99%DE%A7 "މައި ޞަފްޙާ – Ντιβέχι")
+  * [ཇོང་ཁ](https://dz.wikipedia.org/wiki/%E0%BD%98%E0%BC%8B%E0%BD%A4%E0%BD%BC%E0%BD%82%E0%BC%8D "མ་ཤོག། – Ντζόνγκχα")
+  * [Eʋegbe](https://ee.wikipedia.org/wiki/Axa_do_%C5%8Ag%C9%94 "Axa do Ŋgɔ – Έουε")
+  * [Emiliàn e rumagnòl](https://eml.wikipedia.org/wiki/PP "PP – Emiliano-Romagnolo")
+  * [English](https://en.wikipedia.org/wiki/Main_Page "Main Page – Αγγλικά")
+  * [Esperanto](https://eo.wikipedia.org/wiki/Vikipedio:%C4%88efpa%C4%9Do "Vikipedio:Ĉefpaĝo – Εσπεράντο")
+  * [Español](https://es.wikipedia.org/wiki/Wikipedia:Portada "Wikipedia:Portada – Ισπανικά")
+  * [Eesti](https://et.wikipedia.org/wiki/Vikipeedia:Esileht "Vikipeedia:Esileht – Εσθονικά")
+  * [Euskara](https://eu.wikipedia.org/wiki/Azala "Azala – Βασκικά")
+  * [Estremeñu](https://ext.wikipedia.org/wiki/Port%C3%A1_antigua "Portá antigua – Extremaduran")
+  * [فارسی](https://fa.wikipedia.org/wiki/%D8%B5%D9%81%D8%AD%D9%87%D9%94_%D8%A7%D8%B5%D9%84%DB%8C "صفحهٔ اصلی – Περσικά")
+  * [Mfantse](https://fat.wikipedia.org/wiki/Kratafa_Tsitsir "Kratafa Tsitsir – Φάντι")
+  * [Fulfulde](https://ff.wikipedia.org/wiki/Hello_ja%C9%93%C9%93orgo "Hello jaɓɓorgo – Φουλά")
+  * [Suomi](https://fi.wikipedia.org/wiki/Wikipedia:Etusivu "Wikipedia:Etusivu – Φινλανδικά")
+  * [Võro](https://fiu-vro.wikipedia.org/wiki/Wikipedia:P%C3%A4%C3%A4leht "Wikipedia:Pääleht – Võro")
+  * [Na Vosa Vakaviti](https://fj.wikipedia.org/wiki/Tabana_levu "Tabana levu – Φίτζι")
+  * [Føroyskt](https://fo.wikipedia.org/wiki/Fors%C3%AD%C3%B0a "Forsíða – Φεροϊκά")
+  * [Fɔ̀ngbè](https://fon.wikipedia.org/wiki/W%C3%A9m%C3%A1_Nuk%C9%94nt%C9%94n "Wémá Nukɔntɔn – Φον")
+  * [Français](https://fr.wikipedia.org/wiki/Wikip%C3%A9dia:Accueil_principal "Wikipédia:Accueil principal – Γαλλικά")
+  * [Arpetan](https://frp.wikipedia.org/wiki/Vouiquip%C3%A8dia:Re%C3%A7ua_princip%C3%A2la "Vouiquipèdia:Reçua principâla – Arpitan")
+  * [Nordfriisk](https://frr.wikipedia.org/wiki/Wikipedia:Hoodsid "Wikipedia:Hoodsid – Βόρεια Φριζιανά")
+  * [Furlan](https://fur.wikipedia.org/wiki/Pagjine_princip%C3%A2l "Pagjine principâl – Φριουλανικά")
+  * [Frysk](https://fy.wikipedia.org/wiki/Haadside "Haadside – Δυτικά Φριζικά")
+  * [Gaeilge](https://ga.wikipedia.org/wiki/Pr%C3%ADomhleathanach "Príomhleathanach – Ιρλανδικά")
+  * [Gagauz](https://gag.wikipedia.org/wiki/Ba%C5%9F_yaprak "Baş yaprak – Γκαγκάουζ")
+  * [贛語](https://gan.wikipedia.org/wiki/%E5%B0%81%E9%9D%A2 "封面 – Gan")
+  * [Kriyòl gwiyannen](https://gcr.wikipedia.org/wiki/Paj_Prensipal "Paj Prensipal – Guianan Creole")
+  * [Gàidhlig](https://gd.wikipedia.org/wiki/Pr%C3%AComh-Dhuilleag "Prìomh-Dhuilleag – Σκωτικά Κελτικά")
+  * [Galego](https://gl.wikipedia.org/wiki/Portada "Portada – Γαλικιανά")
+  * [گیلکی](https://glk.wikipedia.org/wiki/%DA%AF%D8%AA%CB%87_%D9%88%D9%84%DA%AF "گتˇ ولگ – Gilaki")
+  * [Avañe'ẽ](https://gn.wikipedia.org/wiki/Kuatia_%C3%91epyr%C5%A9ha "Kuatia Ñepyrũha – Γκουαρανί")
+  * [गोंयची कोंकणी / Gõychi Konknni](https://gom.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%87%E0%A4%B2_%E0%A4%AA%E0%A4%BE%E0%A4%A8 "मुखेल पान – Goan Konkani")
+  * [Bahasa Hulontalo](https://gor.wikipedia.org/wiki/Halaman_Bungaliyo "Halaman Bungaliyo – Γκοροντάλο")
+  * [𐌲𐌿𐍄𐌹𐍃𐌺](https://got.wikipedia.org/wiki/%F0%90%8C%B0%F0%90%8C%BD%F0%90%8C%B0%F0%90%8D%83%F0%90%8D%84%F0%90%8D%89%F0%90%8C%B3%F0%90%8C%B4%F0%90%8C%B9%F0%90%8C%BD%F0%90%8C%B9%F0%90%8C%BB%F0%90%8C%B0%F0%90%8C%BF%F0%90%8D%86%F0%90%8D%83 "𐌰𐌽𐌰𐍃𐍄𐍉𐌳𐌴𐌹𐌽𐌹𐌻𐌰𐌿𐍆𐍃 – Γοτθικά")
+  * [Ghanaian Pidgin](https://gpe.wikipedia.org/wiki/Main_Page "Main Page – Ghanaian Pidgin")
+  * [ગુજરાતી](https://gu.wikipedia.org/wiki/%E0%AA%AE%E0%AB%81%E0%AA%96%E0%AA%AA%E0%AB%83%E0%AA%B7%E0%AB%8D%E0%AA%A0 "મુખપૃષ્ઠ – Γκουτζαρατικά")
+  * [Wayuunaiki](https://guc.wikipedia.org/wiki/Ee%27iyalaaya_a%27la%C3%BClaas%C3%BC "Ee'iyalaaya a'laülaasü – Wayuu")
+  * [Farefare](https://gur.wikipedia.org/wiki/P%C9%9Bgezure "Pɛgezure – Frafra")
+  * [Gungbe](https://guw.wikipedia.org/wiki/Weda_Tangan "Weda Tangan – Gun")
+  * [Gaelg](https://gv.wikipedia.org/wiki/Ard-ghuillag "Ard-ghuillag – Μανξ")
+  * [Hausa](https://ha.wikipedia.org/wiki/Babban_shafi "Babban shafi – Χάουσα")
+  * [客家語 / Hak-kâ-ngî](https://hak.wikipedia.org/wiki/Th%C3%A8u-Ya%CC%8Dp "Thèu-Ya̍p – Hakka Chinese")
+  * [Hawaiʻi](https://haw.wikipedia.org/wiki/Ka_papa_kinohi "Ka papa kinohi – Χαβαϊκά")
+  * [עברית](https://he.wikipedia.org/wiki/%D7%A2%D7%9E%D7%95%D7%93_%D7%A8%D7%90%D7%A9%D7%99 "עמוד ראשי – Εβραϊκά")
+  * [हिन्दी](https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुखपृष्ठ – Χίντι")
+  * [Fiji Hindi](https://hif.wikipedia.org/wiki/Pahila_Panna "Pahila Panna – Fiji Hindi")
+  * [Hiri Motu](https://ho.wikipedia.org/wiki/Main_Page "Main Page – Χίρι Μότου")
+  * [Hrvatski](https://hr.wikipedia.org/wiki/Glavna_stranica "Glavna stranica – Κροατικά")
+  * [Hornjoserbsce](https://hsb.wikipedia.org/wiki/H%C5%82owna_strona "Hłowna strona – Άνω Σορβικά")
+  * [Kreyòl ayisyen](https://ht.wikipedia.org/wiki/Paj_Prensipal "Paj Prensipal – Αϊτιανά")
+  * [Magyar](https://hu.wikipedia.org/wiki/Kezd%C5%91lap "Kezdőlap – Ουγγρικά")
+  * [Հայերեն](https://hy.wikipedia.org/wiki/%D4%B3%D5%AC%D5%AD%D5%A1%D5%BE%D5%B8%D6%80_%D5%A7%D5%BB "Գլխավոր էջ – Αρμενικά")
+  * [Արեւմտահայերէն](https://hyw.wikipedia.org/wiki/%D4%B3%D5%AC%D5%AD%D5%A1%D6%82%D5%B8%D6%80_%D4%B7%D5%BB "Գլխաւոր Էջ – Western Armenian")
+  * [Otsiherero](https://hz.wikipedia.org/wiki/Main_Page "Main Page – Χερέρο")
+  * [Interlingua](https://ia.wikipedia.org/wiki/Pagina_principal "Pagina principal – Ιντερλίνγκουα")
+  * [Jaku Iban](https://iba.wikipedia.org/wiki/Lambar_Keterubah "Lambar Keterubah – Ιμπάν")
+  * [Bahasa Indonesia](https://id.wikipedia.org/wiki/Halaman_Utama "Halaman Utama – Ινδονησιακά")
+  * [Interlingue](https://ie.wikipedia.org/wiki/Principal_p%C3%A1gine "Principal págine – Ιντερλίνγκουε")
+  * [Igbo](https://ig.wikipedia.org/wiki/Ihu_m%CC%80b%E1%BB%A5 "Ihu m̀bụ – Ίγκμπο")
+  * [Igala](https://igl.wikipedia.org/wiki/Ogb%C3%A1_ogbolo "Ogbá ogbolo – Igala")
+  * [Iñupiatun](https://ik.wikipedia.org/wiki/Aulla%C4%A1niisaa%C4%A1vik "Aullaġniisaaġvik – Ινουπιάκ")
+  * [Ilokano](https://ilo.wikipedia.org/wiki/Umuna_a_Panid "Umuna a Panid – Ιλόκο")
+  * [ГӀалгӀай](https://inh.wikipedia.org/wiki/%D0%9A%D0%B5%D1%80%D1%82%D1%82%D0%B5%D1%80%D0%B0_%D0%BE%D0%B0%D0%B3%D3%80%D1%83%D0%B2 "Керттера оагӀув – Ινγκούς")
+  * [Ido](https://io.wikipedia.org/wiki/Frontispico "Frontispico – Ίντο")
+  * [Íslenska](https://is.wikipedia.org/wiki/Fors%C3%AD%C3%B0a "Forsíða – Ισλανδικά")
+  * [Italiano](https://it.wikipedia.org/wiki/Pagina_principale "Pagina principale – Ιταλικά")
+  * [ᐃᓄᒃᑎᑐᑦ / inuktitut](https://iu.wikipedia.org/wiki/%E1%90%8A%E1%92%A5%E1%96%85 "ᐊᒥᖅ – Ινούκτιτουτ")
+  * [日本語](https://ja.wikipedia.org/wiki/%E3%83%A1%E3%82%A4%E3%83%B3%E3%83%9A%E3%83%BC%E3%82%B8 "メインページ – Ιαπωνικά")
+  * [Patois](https://jam.wikipedia.org/wiki/Mien_Piej "Mien Piej – Jamaican Creole English")
+  * [La .lojban.](https://jbo.wikipedia.org/wiki/uikipedi%27as:ralju "uikipedi'as:ralju – Λόζμπαν")
+  * [Jawa](https://jv.wikipedia.org/wiki/Wikip%C3%A9dia:Pendhapa "Wikipédia:Pendhapa – Ιαβανικά")
+  * [ქართული](https://ka.wikipedia.org/wiki/%E1%83%9B%E1%83%97%E1%83%90%E1%83%95%E1%83%90%E1%83%A0%E1%83%98_%E1%83%92%E1%83%95%E1%83%94%E1%83%A0%E1%83%93%E1%83%98 "მთავარი გვერდი – Γεωργιανά")
+  * [Qaraqalpaqsha](https://kaa.wikipedia.org/wiki/Bas_bet "Bas bet – Κάρα-Καλπάκ")
+  * [Taqbaylit](https://kab.wikipedia.org/wiki/Asebter_agejdan "Asebter agejdan – Καμπίλε")
+  * [Адыгэбзэ](https://kbd.wikipedia.org/wiki/%D0%9D%D0%B0%D0%BF%D1%8D%D0%BA%D3%80%D1%83%D1%8D%D1%86%D3%80_%D0%BD%D1%8D%D1%85%D1%8A%D1%8B%D1%89%D1%85%D1%8C%D1%8D "НапэкӀуэцӀ нэхъыщхьэ – Καμπαρντιανά")
+  * [Kabɩyɛ](https://kbp.wikipedia.org/wiki/Tal%C9%A9_%C9%96eu "Talɩ ɖeu – Kabiye")
+  * [Tyap](https://kcg.wikipedia.org/wiki/A%CC%B1tsak_Wat_Wu "A̱tsak Wat Wu – Τιάπ")
+  * [Kongo](https://kg.wikipedia.org/wiki/Muk%C3%A2nda_ya_ngudi "Mukânda ya ngudi – Κονγκό")
+  * [Kumoring](https://kge.wikipedia.org/wiki/Wikipidiya:Garang "Wikipidiya:Garang – Komering")
+  * [Gĩkũyũ](https://ki.wikipedia.org/wiki/Main_Page "Main Page – Κικούγιου")
+  * [Kwanyama](https://kj.wikipedia.org/wiki/Main_Page "Main Page – Κουανιάμα")
+  * [Қазақша](https://kk.wikipedia.org/wiki/%D0%91%D0%B0%D1%81%D1%82%D1%8B_%D0%B1%D0%B5%D1%82 "Басты бет – Καζακικά")
+  * [Kalaallisut](https://kl.wikipedia.org/wiki/Saqqaa "Saqqaa – Καλαάλισουτ")
+  * [ភាសាខ្មែរ](https://km.wikipedia.org/wiki/%E1%9E%91%E1%9F%86%E1%9E%96%E1%9F%90%E1%9E%9A%E1%9E%8A%E1%9E%BE%E1%9E%98 "ទំព័រដើម – Χμερ")
+  * [ಕನ್ನಡ](https://kn.wikipedia.org/wiki/%E0%B2%AE%E0%B3%81%E0%B2%96%E0%B3%8D%E0%B2%AF_%E0%B2%AA%E0%B3%81%E0%B2%9F "ಮುಖ್ಯ ಪುಟ – Κανάντα")
+  * [Yerwa Kanuri](https://knc.wikipedia.org/wiki/Wikipedia:Shafi_kura "Wikipedia:Shafi kura – Central Kanuri")
+  * [한국어](https://ko.wikipedia.org/wiki/%EC%9C%84%ED%82%A4%EB%B0%B1%EA%B3%BC:%EB%8C%80%EB%AC%B8 "위키백과:대문 – Κορεατικά")
+  * [Перем коми](https://koi.wikipedia.org/wiki/%D0%9F%D0%BE%D0%BD%D0%B4%D3%A7%D1%82%D1%87%D0%B0%D0%BD_%D0%BB%D0%B8%D1%81%D1%82%D0%B1%D0%BE%D0%BA "Пондӧтчан листбок – Κόμι-Περμιάκ")
+  * [Kanuri](https://kr.wikipedia.org/wiki/Main_Page "Main Page – Κανούρι")
+  * [Къарачай-малкъар](https://krc.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B5%D1%82 "Баш бет – Καρατσάι-Μπαλκάρ")
+  * [کٲشُر](https://ks.wikipedia.org/wiki/%D8%A7%D9%8E%DB%81%D9%8E%D9%85_%D8%B5%D9%8E%D9%81%DB%81%D9%95 "اَہَم صَفہٕ – Κασμιρικά")
+  * [Ripoarisch](https://ksh.wikipedia.org/wiki/Wikipedia:Houpsigk "Wikipedia:Houpsigk – Κολωνικά")
+  * [Kurdî](https://ku.wikipedia.org/wiki/Destp%C3%AAk "Destpêk – Κουρδικά")
+  * [Kʋsaal](https://kus.wikipedia.org/wiki/Zug_lakir "Zug lakir – Kusaal")
+  * [Коми](https://kv.wikipedia.org/wiki/%D0%9C%D0%B5%D0%B4%D1%88%D3%A7%D1%80_%D0%BB%D0%B8%D1%81%D1%82_%D0%B1%D0%BE%D0%BA "Медшӧр лист бок – Κόμι")
+  * [Kernowek](https://kw.wikipedia.org/wiki/Folen_dre "Folen dre – Κορνουαλικά")
+  * [Кыргызча](https://ky.wikipedia.org/wiki/%D0%91%D0%B0%D1%88%D0%BA%D1%8B_%D0%B1%D0%B0%D1%80%D0%B0%D0%BA "Башкы барак – Κιργιζικά")
+  * [Latina](https://la.wikipedia.org/wiki/Vicipaedia:Pagina_prima "Vicipaedia:Pagina prima – Λατινικά")
+  * [Ladino](https://lad.wikipedia.org/wiki/La_Primera_Oja "La Primera Oja – Λαδίνο")
+  * [Lëtzebuergesch](https://lb.wikipedia.org/wiki/Haapts%C3%A4it "Haaptsäit – Λουξεμβουργιανά")
+  * [Лакку](https://lbe.wikipedia.org/wiki/%D0%90%D0%B3%D1%8C%D0%B0%D0%BC%D0%BC%D1%83%D1%80_%D0%BB%D0%B0%D0%B6%D0%B8%D0%BD "Агьаммур лажин – Lak")
+  * [Лезги](https://lez.wikipedia.org/wiki/%D0%9A%D1%8C%D0%B8%D0%BB%D0%B8%D0%BD_%D1%87%D1%87%D0%B8%D0%BD "Кьилин ччин – Λεζγκικά")
+  * [Lingua Franca Nova](https://lfn.wikipedia.org/wiki/Paje_xef "Paje xef – Lingua Franca Nova")
+  * [Luganda](https://lg.wikipedia.org/wiki/Olupapula_Olusooka "Olupapula Olusooka – Γκάντα")
+  * [Limburgs](https://li.wikipedia.org/wiki/Veurblaad "Veurblaad – Λιμβουργιανά")
+  * [Ligure](https://lij.wikipedia.org/wiki/Pagina_prin%C3%A7ip%C3%A2 "Pagina prinçipâ – Λιγουριανά")
+  * [Ladin](https://lld.wikipedia.org/wiki/Plata_prinzipala "Plata prinzipala – Ladin")
+  * [Lombard](https://lmo.wikipedia.org/wiki/Pagina_principala "Pagina principala – Λομβαρδικά")
+  * [Lingála](https://ln.wikipedia.org/wiki/Lok%C3%A1s%C3%A1_ya_libos%C3%B3 "Lokásá ya libosó – Λινγκάλα")
+  * [ລາວ](https://lo.wikipedia.org/wiki/%E0%BB%9C%E0%BB%89%E0%BA%B2%E0%BA%AB%E0%BA%BC%E0%BA%B1%E0%BA%81 "ໜ້າຫຼັກ – Λαοτινά")
+  * [لۊری شومالی](https://lrc.wikipedia.org/wiki/%D8%B3%D8%B1%D8%A2%D8%B3%D9%88%D9%86%D9%B1 "سرآسونٱ – Βόρεια Λούρι")
+  * [Lietuvių](https://lt.wikipedia.org/wiki/Pagrindinis_puslapis "Pagrindinis puslapis – Λιθουανικά")
+  * [Latgaļu](https://ltg.wikipedia.org/wiki/Suoku_puslopa "Suoku puslopa – Latgalian")
+  * [Latviešu](https://lv.wikipedia.org/wiki/S%C4%81kumlapa "Sākumlapa – Λετονικά")
+  * [Madhurâ](https://mad.wikipedia.org/wiki/Tan%C3%A8yan "Tanèyan – Μαντουρίζ")
+  * [मैथिली](https://mai.wikipedia.org/wiki/%E0%A4%B8%E0%A4%AE%E0%A5%8D%E0%A4%AE%E0%A5%81%E0%A4%96_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "सम्मुख पन्ना – Μαϊτχίλι")
+  * [Basa Banyumasan](https://map-bms.wikipedia.org/wiki/Kaca_Utama "Kaca Utama – Banyumasan")
+  * [Мокшень](https://mdf.wikipedia.org/wiki/%D0%9F%D1%80%D1%8F_%D0%BB%D0%BE%D0%BF%D0%B0 "Пря лопа – Μόκσα")
+  * [Malagasy](https://mg.wikipedia.org/wiki/Wikipedia:Fandraisana "Wikipedia:Fandraisana – Μαλγασικά")
+  * [Ebon](https://mh.wikipedia.org/wiki/Main_Page "Main Page – Μαρσαλέζικα")
+  * [Олык марий](https://mhr.wikipedia.org/wiki/%D0%A2%D3%B1%D2%A5_%D0%BB%D0%B0%D1%88%D1%82%D1%8B%D0%BA "Тӱҥ лаштык – Eastern Mari")
+  * [Māori](https://mi.wikipedia.org/wiki/Hau_K%C4%81inga "Hau Kāinga – Μαορί")
+  * [Minangkabau](https://min.wikipedia.org/wiki/Laman_Utamo "Laman Utamo – Μινανγκαμπάου")
+  * [Македонски](https://mk.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Главна страница – Σλαβομακεδονικά")
+  * [മലയാളം](https://ml.wikipedia.org/wiki/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%A7%E0%B4%BE%E0%B4%A8_%E0%B4%A4%E0%B4%BE%E0%B5%BE "പ്രധാന താൾ – Μαλαγιαλαμικά")
+  * [Монгол](https://mn.wikipedia.org/wiki/%D0%9D%D2%AF%D2%AF%D1%80_%D1%85%D1%83%D1%83%D0%B4%D0%B0%D1%81 "Нүүр хуудас – Μογγολικά")
+  * [ꯃꯤꯇꯩ ꯂꯣꯟ](https://mni.wikipedia.org/wiki/%EA%AF%83%EA%AF%94%EA%AF%A8%EA%AF%91%EA%AF%A3%EA%AF%8F%EA%AF%95_%EA%AF%82%EA%AF%83%EA%AF%A5%EA%AF%8F "ꯃꯔꯨꯑꯣꯏꯕ ꯂꯃꯥꯏ – Μανιπούρι")
+  * [ဘာသာမန်](https://mnw.wikipedia.org/wiki/%E1%80%99%E1%80%AF%E1%80%80%E1%80%BA%E1%80%9C%E1%80%AD%E1%80%80%E1%80%BA%E1%80%90%E1%80%99%E1%80%BA "မုက်လိက်တမ် – Mon")
+  * [Moore](https://mos.wikipedia.org/wiki/Soraogo "Soraogo – Μόσι")
+  * [मराठी](https://mr.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुखपृष्ठ – Μαραθικά")
+  * [Кырык мары](https://mrj.wikipedia.org/wiki/%D0%A2%D3%B9%D0%BD%D0%B3_%D3%B9%D0%BB%D3%B9%D1%88%D1%82%D3%93%D1%88 "Тӹнг ӹлӹштӓш – Western Mari")
+  * [Bahasa Melayu](https://ms.wikipedia.org/wiki/Laman_Utama "Laman Utama – Μαλαισιανά")
+  * [Malti](https://mt.wikipedia.org/wiki/Il-Pa%C4%A1na_prin%C4%8Bipali "Il-Paġna prinċipali – Μαλτεζικά")
+  * [Mvskoke](https://mus.wikipedia.org/wiki/Main_Page "Main Page – Κρικ")
+  * [Mirandés](https://mwl.wikipedia.org/wiki/Biquip%C3%A9dia:P%C3%A1igina_percipal "Biquipédia:Páigina percipal – Μιραντεζικά")
+  * [မြန်မာဘာသာ](https://my.wikipedia.org/wiki/%E1%80%97%E1%80%9F%E1%80%AD%E1%80%AF%E1%80%85%E1%80%AC%E1%80%99%E1%80%BB%E1%80%80%E1%80%BA%E1%80%94%E1%80%BE%E1%80%AC "ဗဟိုစာမျက်နှာ – Βιρμανικά")
+  * [Эрзянь](https://myv.wikipedia.org/wiki/%D0%9F%D1%80%D1%8F%D0%B2%D1%82%D0%BB%D0%BE%D0%BF%D0%B0 "Прявтлопа – Έρζια")
+  * [مازِرونی](https://mzn.wikipedia.org/wiki/%DA%AF%D8%AA_%D8%B5%D9%81%D8%AD%D9%87 "گت صفحه – Μαζαντεράνι")
+  * [Nāhuatl](https://nah.wikipedia.org/wiki/Cal%C4%ABxatl "Calīxatl – Nahuatl")
+  * [Napulitano](https://nap.wikipedia.org/wiki/Paggena_prencepale "Paggena prencepale – Ναπολιτανικά")
+  * [Plattdüütsch](https://nds.wikipedia.org/wiki/Wikipedia:H%C3%B6%C3%B6ftsiet "Wikipedia:Hööftsiet – Κάτω Γερμανικά")
+  * [Nedersaksies](https://nds-nl.wikipedia.org/wiki/V%C3%B6%C3%A4rblad "Vöärblad – Κάτω Γερμανικά Ολλανδίας")
+  * [नेपाली](https://ne.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुख्य पृष्ठ – Νεπαλικά")
+  * [नेपाल भाषा](https://new.wikipedia.org/wiki/%E0%A4%AE%E0%A5%82_%E0%A4%AA%E0%A5%8C "मू पौ – Νεγουάρι")
+  * [Oshiwambo](https://ng.wikipedia.org/wiki/Hambili_Tarkerazu "Hambili Tarkerazu – Ντόνγκα")
+  * [Li Niha](https://nia.wikipedia.org/wiki/Wikipedia:Olayama "Wikipedia:Olayama – Νίας")
+  * [Nederlands](https://nl.wikipedia.org/wiki/Hoofdpagina "Hoofdpagina – Ολλανδικά")
+  * [Norsk nynorsk](https://nn.wikipedia.org/wiki/Hovudside "Hovudside – Νορβηγικά Νινόρσκ")
+  * [Norsk bokmål](https://no.wikipedia.org/wiki/Forside "Forside – Νορβηγικά Μποκμάλ")
+  * [Novial](https://nov.wikipedia.org/wiki/Chefi_pagine "Chefi pagine – Novial")
+  * [ߒߞߏ](https://nqo.wikipedia.org/wiki/%DF%93%DF%8F%DF%AC%DF%9F%DF%8F%DF%B2%DF%AC%DF%98%DF%8A "ߓߏ߬ߟߏ߲߬ߘߊ – Ν’Κο")
+  * [IsiNdebele seSewula](https://nr.wikipedia.org/wiki/Main_Page "Main Page – Νότια Ντεμπέλε")
+  * [Nouormand](https://nrm.wikipedia.org/wiki/Page_d%C3%A9_garde "Page dé garde – Norman")
+  * [Sesotho sa Leboa](https://nso.wikipedia.org/wiki/Letlakala_la_pele "Letlakala la pele – Βόρεια Σόθο")
+  * [Nupe](https://nup.wikipedia.org/wiki/Kpataki_Kperegi "Kpataki Kperegi – Nupe")
+  * [Diné bizaad](https://nv.wikipedia.org/wiki/%C3%8Diyis%C3%AD%C3%AD_Naaltsoos "Íiyisíí Naaltsoos – Νάβαχο")
+  * [Chi-Chewa](https://ny.wikipedia.org/wiki/Tsamba_Lalikulu "Tsamba Lalikulu – Νιάντζα")
+  * [Occitan](https://oc.wikipedia.org/wiki/Acu%C3%A8lh "Acuèlh – Οξιτανικά")
+  * [Livvinkarjala](https://olo.wikipedia.org/wiki/Pi%C3%A4sivu "Piäsivu – Livvi-Karelian")
+  * [Oromoo](https://om.wikipedia.org/wiki/Fuula_Dura "Fuula Dura – Ορόμο")
+  * [ଓଡ଼ିଆ](https://or.wikipedia.org/wiki/%E0%AC%AA%E0%AD%8D%E0%AC%B0%E0%AC%A7%E0%AC%BE%E0%AC%A8_%E0%AC%AA%E0%AD%83%E0%AC%B7%E0%AD%8D%E0%AC%A0%E0%AC%BE "ପ୍ରଧାନ ପୃଷ୍ଠା – Όντια")
+  * [Ирон](https://os.wikipedia.org/wiki/%D0%A1%C3%A6%D0%B9%D1%80%D0%B0%D0%B3_%D1%84%D0%B0%D1%80%D1%81 "Сæйраг фарс – Οσετικά")
+  * [ਪੰਜਾਬੀ](https://pa.wikipedia.org/wiki/%E0%A8%AE%E0%A9%81%E0%A9%B1%E0%A8%96_%E0%A8%B8%E0%A8%AB%E0%A8%BC%E0%A8%BE "ਮੁੱਖ ਸਫ਼ਾ – Παντζαπικά")
+  * [Pangasinan](https://pag.wikipedia.org/wiki/Arapan_ya_Bolong "Arapan ya Bolong – Πανγκασινάν")
+  * [Kapampangan](https://pam.wikipedia.org/wiki/Pun_Bulung "Pun Bulung – Παμπάνγκα")
+  * [Papiamentu](https://pap.wikipedia.org/wiki/P%C3%A1gina_Prinsipal "Página Prinsipal – Παπιαμέντο")
+  * [Picard](https://pcd.wikipedia.org/wiki/Accueul "Accueul – Picard")
+  * [Naijá](https://pcm.wikipedia.org/wiki/Main_Pej "Main Pej – Πίτζιν Νιγηρίας")
+  * [Deitsch](https://pdc.wikipedia.org/wiki/Haaptblatt "Haaptblatt – Pennsylvania German")
+  * [Pälzisch](https://pfl.wikipedia.org/wiki/Wikipedia:Haubdsaid "Wikipedia:Haubdsaid – Palatine German")
+  * [पालि](https://pi.wikipedia.org/wiki/%E0%A4%AA%E0%A4%AE%E0%A5%81%E0%A4%96_%E0%A4%AA%E0%A4%A4%E0%A5%8D%E0%A4%A4_Pamukha_patta "पमुख पत्त Pamukha patta – Πάλι")
+  * [Norfuk / Pitkern](https://pih.wikipedia.org/wiki/Mien_Paij "Mien Paij – Pitcairn-Norfolk")
+  * [Polski](https://pl.wikipedia.org/wiki/Wikipedia:Strona_g%C5%82%C3%B3wna "Wikipedia:Strona główna – Πολωνικά")
+  * [Piemontèis](https://pms.wikipedia.org/wiki/Intrada "Intrada – Piedmontese")
+  * [پنجابی](https://pnb.wikipedia.org/wiki/%D9%BE%DB%81%D9%84%D8%A7_%D8%B5%D9%81%DB%81 "پہلا صفہ – Western Punjabi")
+  * [Ποντιακά](https://pnt.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B9%CE%BA%CF%8C%CE%BD_%CF%83%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1 "Αρχικόν σελίδα – Pontic")
+  * [پښتو](https://ps.wikipedia.org/wiki/%D9%84%D9%88%D9%85%DA%93%DB%8C_%D9%85%D8%AE "لومړی مخ – Πάστο")
+  * [Português](https://pt.wikipedia.org/wiki/Wikip%C3%A9dia:P%C3%A1gina_principal "Wikipédia:Página principal – Πορτογαλικά")
+  * [Pinayuanan](https://pwn.wikipedia.org/wiki/sitjumaq_na_sapitj "sitjumaq na sapitj – Paiwan")
+  * [Runa Simi](https://qu.wikipedia.org/wiki/Qhapaq_p%27anqa "Qhapaq p'anqa – Κέτσουα")
+  * [ရခိုင်](https://rki.wikipedia.org/wiki/%E1%80%A1%E1%80%93%E1%80%AD%E1%80%80%E1%80%85%E1%80%AC%E1%80%99%E1%80%BB%E1%80%80%E1%80%BA%E1%80%94%E1%80%BE%E1%80%AC "အဓိကစာမျက်နှာ – Arakanese")
+  * [Rumantsch](https://rm.wikipedia.org/wiki/Wikipedia:Pagina_principala "Wikipedia:Pagina principala – Ρομανικά")
+  * [Romani čhib](https://rmy.wikipedia.org/wiki/Sherutni_patrin "Sherutni patrin – Vlax Romani")
+  * [Ikirundi](https://rn.wikipedia.org/wiki/Urupapuro_nyamukuru "Urupapuro nyamukuru – Ρούντι")
+  * [Română](https://ro.wikipedia.org/wiki/Pagina_principal%C4%83 "Pagina principală – Ρουμανικά")
+  * [Armãneashti](https://roa-rup.wikipedia.org/wiki/Prota_fr%C3%A3ndz%C3%A3 "Prota frãndzã – Αρομανικά")
+  * [Tarandíne](https://roa-tara.wikipedia.org/wiki/Pagene_Prengep%C3%A1le "Pagene Prengepále – Tarantino")
+  * [Руски](https://rsk.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B8_%D0%B1%D0%BE%D0%BA "Главни бок – Pannonian Rusyn")
+  * [Русский](https://ru.wikipedia.org/wiki/%D0%97%D0%B0%D0%B3%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Заглавная страница – Ρωσικά")
+  * [Русиньскый](https://rue.wikipedia.org/wiki/%D0%93%D0%BE%D0%BB%D0%BE%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D0%BE%D1%80%D1%96%D0%BD%D0%BA%D0%B0 "Головна сторінка – Rusyn")
+  * [Ikinyarwanda](https://rw.wikipedia.org/wiki/Intangiriro "Intangiriro – Κινιαρουάντα")
+  * [संस्कृतम्](https://sa.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0%E0%A4%AE%E0%A5%8D "मुख्यपृष्ठम् – Σανσκριτικά")
+  * [Саха тыла](https://sah.wikipedia.org/wiki/%D0%A1%D2%AF%D1%80%D2%AF%D0%BD_%D1%81%D0%B8%D1%80%D1%8D%D0%B9 "Сүрүн сирэй – Σαχά")
+  * [ᱥᱟᱱᱛᱟᱲᱤ](https://sat.wikipedia.org/wiki/%E1%B1%A2%E1%B1%A9%E1%B1%AC%E1%B1%A9%E1%B1%9B_%E1%B1%A5%E1%B1%9F%E1%B1%A6%E1%B1%B4%E1%B1%9F "ᱢᱩᱬᱩᱛ ᱥᱟᱦᱴᱟ – Σαντάλι")
+  * [Sardu](https://sc.wikipedia.org/wiki/P%C3%A0gina_printzipale "Pàgina printzipale – Σαρδηνιακά")
+  * [Sicilianu](https://scn.wikipedia.org/wiki/P%C3%A0ggina_principali "Pàggina principali – Σικελικά")
+  * [Scots](https://sco.wikipedia.org/wiki/Main_Page "Main Page – Σκωτικά")
+  * [سنڌي](https://sd.wikipedia.org/wiki/%D9%85%D9%8F%DA%A9_%D8%B5%D9%81%D8%AD%D9%88 "مُک صفحو – Σίντι")
+  * [Davvisámegiella](https://se.wikipedia.org/wiki/Port%C3%A1la:Ovdasiidu "Portála:Ovdasiidu – Βόρεια Σάμι")
+  * [Sängö](https://sg.wikipedia.org/wiki/G%C3%A4_nz%C3%B6n%C3%AE "Gä nzönî – Σάνγκο")
+  * [Srpskohrvatski / српскохрватски](https://sh.wikipedia.org/wiki/Glavna_stranica "Glavna stranica – Σερβοκροατικά")
+  * [Taclḥit](https://shi.wikipedia.org/wiki/Tasna_Tamzwarut "Tasna Tamzwarut – Τασελχίτ")
+  * [တႆး](https://shn.wikipedia.org/wiki/%E1%81%BC%E1%82%83%E1%82%88%E1%82%81%E1%80%B0%E1%80%9D%E1%80%BA%E1%82%81%E1%82%85%E1%81%B5%E1%80%BA%E1%82%88 "ၼႃႈႁူဝ်ႁႅၵ်ႈ – Σαν")
+  * [සිංහල](https://si.wikipedia.org/wiki/%E0%B6%B8%E0%B7%94%E0%B6%BD%E0%B7%8A_%E0%B6%B4%E0%B7%92%E0%B6%A7%E0%B7%94%E0%B7%80 "මුල් පිටුව – Σινχαλεζικά")
+  * [Simple English](https://simple.wikipedia.org/wiki/Main_Page "Main Page – Simple English")
+  * [Slovenčina](https://sk.wikipedia.org/wiki/Hlavn%C3%A1_str%C3%A1nka "Hlavná stránka – Σλοβακικά")
+  * [سرائیکی](https://skr.wikipedia.org/wiki/%D9%BE%DB%81%D9%84%D8%A7_%D9%BE%D8%B1%D8%AA "پہلا پرت – Saraiki")
+  * [Slovenščina](https://sl.wikipedia.org/wiki/Glavna_stran "Glavna stran – Σλοβενικά")
+  * [Gagana Samoa](https://sm.wikipedia.org/wiki/It%C5%ABlau_Muamua "Itūlau Muamua – Σαμοανά")
+  * [Anarâškielâ](https://smn.wikipedia.org/wiki/Ovd%C3%A2sij%C4%91o "Ovdâsijđo – Ινάρι Σάμι")
+  * [ChiShona](https://sn.wikipedia.org/wiki/Peji_Rekutanga "Peji Rekutanga – Σόνα")
+  * [Soomaaliga](https://so.wikipedia.org/wiki/Bogga_Hore "Bogga Hore – Σομαλικά")
+  * [Shqip](https://sq.wikipedia.org/wiki/Faqja_kryesore "Faqja kryesore – Αλβανικά")
+  * [Српски / srpski](https://sr.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B0 "Главна страна – Σερβικά")
+  * [Sranantongo](https://srn.wikipedia.org/wiki/Fesipapira "Fesipapira – Σρανάν Τόνγκο")
+  * [SiSwati](https://ss.wikipedia.org/wiki/Likhasi_Lelikhulu "Likhasi Lelikhulu – Σουάτι")
+  * [Sesotho](https://st.wikipedia.org/wiki/Leqephe_la_pele "Leqephe la pele – Νότια Σόθο")
+  * [Seeltersk](https://stq.wikipedia.org/wiki/Haudsiede "Haudsiede – Saterland Frisian")
+  * [Sunda](https://su.wikipedia.org/wiki/Tepas "Tepas – Σουνδανικά")
+  * [Svenska](https://sv.wikipedia.org/wiki/Portal:Huvudsida "Portal:Huvudsida – Σουηδικά")
+  * [Kiswahili](https://sw.wikipedia.org/wiki/Mwanzo "Mwanzo – Σουαχίλι")
+  * [ꠍꠤꠟꠐꠤ](https://syl.wikipedia.org/wiki/%EA%A0%9D%EA%A0%A5%EA%A0%9F_%EA%A0%9A%EA%A0%A3%EA%A0%94%EA%A0%A3 "ꠝꠥꠟ ꠚꠣꠔꠣ – Sylheti")
+  * [Ślůnski](https://szl.wikipedia.org/wiki/Przodni%C5%8F_zajta "Przodniŏ zajta – Σιλεσικά")
+  * [Sakizaya](https://szy.wikipedia.org/wiki/saayaway_a_belih "saayaway a belih – Sakizaya")
+  * [தமிழ்](https://ta.wikipedia.org/wiki/%E0%AE%AE%E0%AF%81%E0%AE%A4%E0%AE%B1%E0%AF%8D_%E0%AE%AA%E0%AE%95%E0%AF%8D%E0%AE%95%E0%AE%AE%E0%AF%8D "முதற் பக்கம் – Ταμιλικά")
+  * [Tayal](https://tay.wikipedia.org/wiki/T%E2%80%99ringan_na_zzngayan "T’ringan na zzngayan – Atayal")
+  * [ತುಳು](https://tcy.wikipedia.org/wiki/%E0%B2%AE%E0%B3%81%E0%B2%96%E0%B3%8D%E0%B2%AF_%E0%B2%AA%E0%B3%81%E0%B2%9F "ಮುಖ್ಯ ಪುಟ – Tulu")
+  * [ᥖᥭᥰ ᥖᥬᥲ ᥑᥨᥒᥰ](https://tdd.wikipedia.org/wiki/%E1%A5%9E%E1%A5%A8%E1%A5%9D%E1%A5%B4_%E1%A5%98%E1%A5%A3%E1%A5%B2_%E1%A5%96%E1%A5%A5%E1%A5%B0 "ᥞᥨᥝᥴ ᥘᥣᥲ ᥖᥥᥰ – Tai Nuea")
+  * [తెలుగు](https://te.wikipedia.org/wiki/%E0%B0%AE%E0%B1%8A%E0%B0%A6%E0%B0%9F%E0%B0%BF_%E0%B0%AA%E0%B1%87%E0%B0%9C%E0%B1%80 "మొదటి పేజీ – Τελούγκου")
+  * [Tetun](https://tet.wikipedia.org/wiki/P%C3%A1jina_Mahuluk "Pájina Mahuluk – Τέτουμ")
+  * [Тоҷикӣ](https://tg.wikipedia.org/wiki/%D0%A1%D0%B0%D2%B3%D0%B8%D1%84%D0%B0%D0%B8_%D0%B0%D1%81%D0%BB%D3%A3 "Саҳифаи аслӣ – Τατζικικά")
+  * [ไทย](https://th.wikipedia.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%81 "หน้าหลัก – Ταϊλανδικά")
+  * [ትግርኛ](https://ti.wikipedia.org/wiki/%E1%88%98%E1%89%A0%E1%8C%88%E1%88%B2_%E1%8C%88%E1%8C%BD "መበገሲ ገጽ – Τιγκρινικά")
+  * [ትግሬ](https://tig.wikipedia.org/wiki/%E1%8A%A0%E1%8C%8D%E1%8B%B3_%E1%8C%88%E1%8C%BD "አግዳ ገጽ – Τίγκρε")
+  * [Türkmençe](https://tk.wikipedia.org/wiki/Ba%C5%9F_Sahypa "Baş Sahypa – Τουρκμενικά")
+  * [Tagalog](https://tl.wikipedia.org/wiki/Unang_Pahina "Unang Pahina – Τάγκαλογκ")
+  * [Tolışi](https://tly.wikipedia.org/wiki/S%C9%99rlovh%C9%99 "Sərlovhə – Talysh")
+  * [Setswana](https://tn.wikipedia.org/wiki/Tsebe_ya_konokono "Tsebe ya konokono – Τσουάνα")
+  * [Lea faka-Tonga](https://to.wikipedia.org/wiki/Peesi_tali_fiefia "Peesi tali fiefia – Τονγκανικά")
+  * [Tok Pisin](https://tpi.wikipedia.org/wiki/Fran_pes "Fran pes – Τοκ Πισίν")
+  * [Türkçe](https://tr.wikipedia.org/wiki/Anasayfa "Anasayfa – Τουρκικά")
+  * [Seediq](https://trv.wikipedia.org/wiki/Ruwahan_patas "Ruwahan patas – Ταρόκο")
+  * [Xitsonga](https://ts.wikipedia.org/wiki/Tlukankulu "Tlukankulu – Τσόνγκα")
+  * [Татарча / tatarça](https://tt.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B8%D1%82 "Баш бит – Ταταρικά")
+  * [ChiTumbuka](https://tum.wikipedia.org/wiki/Jani_likulu "Jani likulu – Τουμπούκα")
+  * [Twi](https://tw.wikipedia.org/wiki/Kratafa_Titiriw "Kratafa Titiriw – Τούι")
+  * [Reo tahiti](https://ty.wikipedia.org/wiki/Fa%E2%80%99ari%E2%80%99ira%E2%80%99a "Fa’ari’ira’a – Ταϊτιανά")
+  * [Тыва дыл](https://tyv.wikipedia.org/wiki/%D0%9A%D0%BE%D0%BB_%D0%B0%D1%80%D1%8B%D0%BD "Кол арын – Τουβινικά")
+  * [Удмурт](https://udm.wikipedia.org/wiki/%D0%9A%D1%83%D1%82%D1%81%D0%BA%D0%BE%D0%BD_%D0%B1%D0%B0%D0%BC "Кутскон бам – Ουντμούρτ")
+  * [ئۇيغۇرچە / Uyghurche](https://ug.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B4_%D8%A8%DB%95%D8%AA "باش بەت – Ουιγουρικά")
+  * [Українська](https://uk.wikipedia.org/wiki/%D0%93%D0%BE%D0%BB%D0%BE%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D0%BE%D1%80%D1%96%D0%BD%D0%BA%D0%B0 "Головна сторінка – Ουκρανικά")
+  * [اردو](https://ur.wikipedia.org/wiki/%D8%B5%D9%81%D8%AD%DB%82_%D8%A7%D9%88%D9%84 "صفحۂ اول – Ούρντου")
+  * [Oʻzbekcha / ўзбекча](https://uz.wikipedia.org/wiki/Bosh_Sahifa "Bosh Sahifa – Ουζμπεκικά")
+  * [Tshivenda](https://ve.wikipedia.org/wiki/Hayani "Hayani – Βέντα")
+  * [Vèneto](https://vec.wikipedia.org/wiki/Wikipedia:Prinsipio "Wikipedia:Prinsipio – Βενετικά")
+  * [Vepsän kel’](https://vep.wikipedia.org/wiki/P%C3%A4lehtpol%E2%80%99 "Pälehtpol’ – Veps")
+  * [Tiếng Việt](https://vi.wikipedia.org/wiki/Trang_Ch%C3%ADnh "Trang Chính – Βιετναμικά")
+  * [West-Vlams](https://vls.wikipedia.org/wiki/Voorblad "Voorblad – West Flemish")
+  * [Volapük](https://vo.wikipedia.org/wiki/Cifapad "Cifapad – Βολαπιούκ")
+  * [Walon](https://wa.wikipedia.org/wiki/Mwaisse_p%C3%A5dje "Mwaisse pådje – Βαλλωνικά")
+  * [Winaray](https://war.wikipedia.org/wiki/Syahan_nga_Pakli "Syahan nga Pakli – Γουάραϊ")
+  * [Wolof](https://wo.wikipedia.org/wiki/X%C3%ABt_wu_nj%C3%ABkk "Xët wu njëkk – Γουόλοφ")
+  * [吴语](https://wuu.wikipedia.org/wiki/%E5%B0%81%E9%9D%A2 "封面 – Κινεζικά Γου")
+  * [Хальмг](https://xal.wikipedia.org/wiki/%D0%9D%D2%AF%D1%80_%D1%85%D0%B0%D0%BB%D1%85 "Нүр халх – Καλμίκ")
+  * [IsiXhosa](https://xh.wikipedia.org/wiki/Iphepha_Elingundoqo "Iphepha Elingundoqo – Κόσα")
+  * [მარგალური](https://xmf.wikipedia.org/wiki/%E1%83%93%E1%83%A3%E1%83%93%E1%83%AE%E1%83%90%E1%83%A1%E1%83%B7%E1%83%9A%E1%83%90 "დუდხასჷლა – Mingrelian")
+  * [ייִדיש](https://yi.wikipedia.org/wiki/%D7%94%D7%95%D7%99%D7%A4%D7%98_%D7%96%D7%99%D7%99%D7%98 "הויפט זייט – Γίντις")
+  * [Yorùbá](https://yo.wikipedia.org/wiki/Oj%C3%BAew%C3%A9_%C3%80k%E1%BB%8D%CC%81k%E1%BB%8D%CC%81 "Ojúewé Àkọ́kọ́ – Γιορούμπα")
+  * [Vahcuengh](https://za.wikipedia.org/wiki/Yiebdaeuz "Yiebdaeuz – Ζουάνγκ")
+  * [Zeêuws](https://zea.wikipedia.org/wiki/V%C3%B2blad "Vòblad – Zeelandic")
+  * [ⵜⴰⵎⴰⵣⵉⵖⵜ ⵜⴰⵏⴰⵡⴰⵢⵜ](https://zgh.wikipedia.org/wiki/%E2%B5%9C%E2%B4%B0%E2%B5%99%E2%B5%8F%E2%B4%B0_%E2%B5%8F_%E2%B5%93%E2%B5%99%E2%B5%8F%E2%B5%93%E2%B4%B1%E2%B4%B3 "ⵜⴰⵙⵏⴰ ⵏ ⵓⵙⵏⵓⴱⴳ – Τυπικά Ταμαζίτ Μαρόκου")
+  * [中文](https://zh.wikipedia.org/wiki/Wikipedia:%E9%A6%96%E9%A1%B5 "Wikipedia:首页 – Κινεζικά")
+  * [文言](https://zh-classical.wikipedia.org/wiki/%E7%B6%AD%E5%9F%BA%E5%A4%A7%E5%85%B8:%E5%8D%B7%E9%A6%96 "維基大典:卷首 – Literary Chinese")
+  * [閩南語 / Bân-lâm-gí](https://zh-min-nan.wikipedia.org/wiki/Th%C3%A2u-ia%CC%8Dh "Thâu-ia̍h – Minnan")
+  * [粵語](https://zh-yue.wikipedia.org/wiki/%E9%A0%AD%E7%89%88 "頭版 – Καντονέζικα")
+  * [IsiZulu](https://zu.wikipedia.org/wiki/Ikhasi_Elikhulu "Ikhasi Elikhulu – Ζουλού")
+
+
+[Επεξεργασία συνδέσμων](https://www.wikidata.org/wiki/Special:EntityPage/Q5296#sitelinks-wikipedia "Επεξεργασία διαγλωσσικών συνδέσεων")
+  * Τελευταία τροποποίηση 10:43, 17 Οκτωβρίου 2022.
+  * Όλα τα κείμενα είναι διαθέσιμα υπό την [Creative Commons Attribution-ShareAlike License](https://creativecommons.org/licenses/by-sa/4.0/deed.el)· μπορεί να ισχύουν και πρόσθετοι όροι. Χρησιμοποιώντας αυτό τον ιστότοπο, συμφωνείτε στους [Όρους Χρήσης](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Terms_of_Use/el) και την [Πολιτική Ιδιωτικότητας](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Privacy_policy). Το Wikipedia® είναι καταχωρημένο σήμα του [Wikimedia Foundation, Inc.](https://www.wikimediafoundation.org/), ενός μη κερδοσκοπικού οργανισμού.
+
+
+  * [Πολιτική προσωπικών δεδομένων](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Privacy_policy)
+  * [Για τη Βικιπαίδεια](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%A3%CF%87%CE%B5%CF%84%CE%B9%CE%BA%CE%AC)
+  * [Αποποίηση ευθυνών](https://el.wikipedia.org/wiki/%CE%92%CE%B9%CE%BA%CE%B9%CF%80%CE%B1%CE%AF%CE%B4%CE%B5%CE%B9%CE%B1:%CE%91%CF%80%CE%BF%CF%80%CE%BF%CE%AF%CE%B7%CF%83%CE%B7_%CE%B5%CF%85%CE%B8%CF%85%CE%BD%CF%8E%CE%BD)
+  * [Κώδικας συμπεριφοράς](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Universal_Code_of_Conduct)
+  * [Προγραμματιστές](https://developer.wikimedia.org)
+  * [Στατιστικά](https://stats.wikimedia.org/#/el.wikipedia.org)
+  * [Δήλωση cookie](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Cookie_statement)
+  * [Προβολή κινητού](https://el.m.wikipedia.org/w/index.php?title=%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1&mobileaction=toggle_view_mobile)
+
+
+  * [![Wikimedia Foundation](https://el.wikipedia.org/static/images/footer/wikimedia.svg)](https://www.wikimedia.org/)
+  * [![Powered by MediaWiki](https://el.wikipedia.org/w/resources/assets/mediawiki_compact.svg)](https://www.mediawiki.org/)
+
+
+Αναζήτηση
+Αναζήτηση
+Πύλη:Κύρια
+[](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1) [](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)
+353 γλώσσες [Προσθήκη θέματος ](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1)

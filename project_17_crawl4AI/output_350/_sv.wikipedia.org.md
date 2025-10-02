@@ -1,0 +1,592 @@
+[Hoppa till innehållet](https://sv.wikipedia.org/wiki/Portal:Huvudsida#bodyContent)
+Huvudmeny
+Huvudmeny
+flytta till sidofältet dölj
+Navigering 
+  * [Huvudsida](https://sv.wikipedia.org/wiki/Portal:Huvudsida "Besök huvudsidan \[z\]")
+  * [Introduktion](https://sv.wikipedia.org/wiki/Wikipedia:Introduktion)
+  * [Deltagarportalen](https://sv.wikipedia.org/wiki/Wikipedia:Deltagarportalen "Om projektet, vad du kan göra, var man kan hitta saker")
+  * [Bybrunnen](https://sv.wikipedia.org/wiki/Wikipedia:Bybrunnen)
+  * [Senaste ändringarna](https://sv.wikipedia.org/wiki/Special:Senaste_%C3%A4ndringar "Lista över de senaste ändringarna på wikin \[r\]")
+  * [Slumpartikel](https://sv.wikipedia.org/wiki/Special:Slumpsida "Gå till en slumpmässigt vald sida \[x\]")
+  * [Ladda upp filer](https://commons.wikimedia.org/wiki/Special:UploadWizard "Ladda upp filer till Wikimedia Commons")
+  * [Kontakta Wikipedia](https://sv.wikipedia.org/wiki/Wikipedia:Kontakt)
+  * [Hjälp](https://sv.wikipedia.org/wiki/Wikipedia:Hj%C3%A4lp "Platsen där du hittar hjälp")
+  * [Specialsidor](https://sv.wikipedia.org/wiki/Special:Specialsidor "Lista över alla specialsidor \[q\]")
+
+
+[ ![](https://sv.wikipedia.org/static/images/icons/wikipedia.png) ![Wikipedia](https://sv.wikipedia.org/static/images/mobile/copyright/wikipedia-wordmark-en.svg) ![](https://sv.wikipedia.org/static/images/mobile/copyright/wikipedia-tagline-sv.svg) ](https://sv.wikipedia.org/wiki/Portal:Huvudsida)
+[Sök ](https://sv.wikipedia.org/wiki/Special:S%C3%B6k "Sök i svenskspråkiga Wikipedia \[f\]")
+Sök
+Utseende
+  * [Stöd Wikipedia](https://donate.wikimedia.org/?wmf_source=donate&wmf_medium=sidebar&wmf_campaign=sv.wikipedia.org&uselang=sv)
+  * [Skapa konto](https://sv.wikipedia.org/w/index.php?title=Special:Skapa_konto&returnto=Portal%3AHuvudsida "Du uppmuntras att skapa ett konto och logga in, men det är inte obligatoriskt")
+  * [Logga in](https://sv.wikipedia.org/w/index.php?title=Special:Inloggning&returnto=Portal%3AHuvudsida "Inloggning ger tillgång till fler funktioner för den som vill skriva och redigera artiklar. \[o\]")
+
+
+Personliga verktyg
+  * [Stöd Wikipedia](https://donate.wikimedia.org/?wmf_source=donate&wmf_medium=sidebar&wmf_campaign=sv.wikipedia.org&uselang=sv)
+  * [Skapa konto](https://sv.wikipedia.org/w/index.php?title=Special:Skapa_konto&returnto=Portal%3AHuvudsida "Du uppmuntras att skapa ett konto och logga in, men det är inte obligatoriskt")
+  * [Logga in](https://sv.wikipedia.org/w/index.php?title=Special:Inloggning&returnto=Portal%3AHuvudsida "Inloggning ger tillgång till fler funktioner för den som vill skriva och redigera artiklar. \[o\]")
+
+
+#  Portal:Huvudsida
+  * [Huvudsida](https://sv.wikipedia.org/wiki/Portal:Huvudsida "Visa portalsidan \[c\]")
+  * [Diskussion](https://sv.wikipedia.org/wiki/Portaldiskussion:Huvudsida "Diskussion om innehållssidan \[t\]")
+
+
+svenska
+  * [Läs](https://sv.wikipedia.org/wiki/Portal:Huvudsida)
+  * [Visa källa](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=edit "Den här sidan är skrivskyddad.
+Du kan se källtexten \[e\]")
+  * [Visa historik](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=history "Tidigare versioner av sidan \[h\]")
+
+
+Verktyg
+Verktyg
+flytta till sidofältet dölj
+Åtgärder 
+  * [Läs](https://sv.wikipedia.org/wiki/Portal:Huvudsida)
+  * [Visa källa](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=edit)
+  * [Visa historik](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=history)
+
+
+Allmänt 
+  * [Sidor som länkar hit](https://sv.wikipedia.org/wiki/Special:L%C3%A4nkar_hit/Portal:Huvudsida "Lista över alla wikisidor som länkar hit \[j\]")
+  * [Relaterade ändringar](https://sv.wikipedia.org/wiki/Special:Senaste_relaterade_%C3%A4ndringar/Portal:Huvudsida "Visa senaste ändringarna av sidor som den här sidan länkar till \[k\]")
+  * [Permanent länk](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&oldid=54298875 "Permanent länk till den här versionen av sidan")
+  * [Sidinformation](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=info "Mer information om denna sida")
+  * [Hämta förkortad url](https://sv.wikipedia.org/w/index.php?title=Special:UrlShortener&url=https%3A%2F%2Fsv.wikipedia.org%2Fwiki%2FPortal%3AHuvudsida)
+  * [Ladda ner QR-kod](https://sv.wikipedia.org/w/index.php?title=Special:QrCode&url=https%3A%2F%2Fsv.wikipedia.org%2Fwiki%2FPortal%3AHuvudsida)
+
+
+Skriv ut/exportera 
+  * [Skapa en bok](https://sv.wikipedia.org/w/index.php?title=Special:Bok&bookcmd=book_creator&referer=Portal%3AHuvudsida)
+  * [Ladda ned som PDF](https://sv.wikipedia.org/w/index.php?title=Special:DownloadAsPdf&page=Portal%3AHuvudsida&action=show-download-screen)
+  * [Utskriftsvänlig version](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&printable=yes "Utskriftsvänlig version av den här sidan \[p\]")
+
+
+På andra projekt 
+  * [Commons](https://commons.wikimedia.org/wiki/Main_Page)
+  * [Wikimedia Foundation](https://foundation.wikimedia.org/wiki/Home)
+  * [MediaWiki](https://www.mediawiki.org/wiki/MediaWiki)
+  * [Meta-wiki](https://meta.wikimedia.org/wiki/Main_Page)
+  * [Wikimedia Outreach](https://outreach.wikimedia.org/wiki/Main_Page)
+  * [Flerspråkiga Wikisource](https://wikisource.org/wiki/Main_Page)
+  * [Wikispecies](https://species.wikimedia.org/wiki/Main_Page)
+  * [Wikibooks](https://sv.wikibooks.org/wiki/Wikibooks:Huvudsida)
+  * [Wikidata](https://www.wikidata.org/wiki/Wikidata:Main_Page)
+  * [Wikifunctions](https://www.wikifunctions.org/wiki/Wikifunctions:Main_Page)
+  * [Wikinews](https://sv.wikinews.org/wiki/Huvudsida)
+  * [Wikiquote](https://sv.wikiquote.org/wiki/Huvudsida)
+  * [Wikisource](https://sv.wikisource.org/wiki/Wikisource:Huvudsida)
+  * [Wikiversity](https://sv.wikiversity.org/wiki/Portal:Huvudsida)
+  * [Wikivoyage](https://sv.wikivoyage.org/wiki/Huvudsida)
+  * [Wiktionary](https://sv.wiktionary.org/wiki/Wiktionary:Huvudsida)
+  * [Wikidata-objekt](https://www.wikidata.org/wiki/Special:EntityPage/Q5296 "Länk till anslutet databasobjekt \[g\]")
+
+
+Utseende
+flytta till sidofältet dölj
+Från Wikipedia
+Välkommen till [Wikipedia](https://sv.wikipedia.org/wiki/Wikipedia "Wikipedia")  
+– den [fria encyklopedin](https://sv.wikipedia.org/wiki/Wikipedia:Upphovsr%C3%A4tt "Wikipedia:Upphovsrätt") som [alla kan redigera](https://sv.wikipedia.org/wiki/Wikipedia:Introduktion_till_redigering "Wikipedia:Introduktion till redigering").  | I dag är det [torsdag](https://sv.wikipedia.org/wiki/Torsdag "Torsdag") den [2 oktober](https://sv.wikipedia.org/wiki/2_oktober "2 oktober") [2025](https://sv.wikipedia.org/wiki/2025 "2025") (vecka 40).  
+Just nu finns det [2 617 103](https://sv.wikipedia.org/wiki/Special:Statistik "Special:Statistik") artiklar på [svenska](https://sv.wikipedia.org/wiki/Svenska "Svenska").   
+---|---  
+  
+
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fd/HSutvald2.svg/40px-HSutvald2.svg.png)](https://sv.wikipedia.org/wiki/Portal:Utvalt_inneh%C3%A5ll "Portal:Utvalt innehåll")
+**Utmärkt artikel**
+[![Den blodstänkta gula smileyfiguren förknippas med Watchmen](https://upload.wikimedia.org/wikipedia/commons/thumb/6/65/Watchmen-cover.svg/250px-Watchmen-cover.svg.png)](https://sv.wikipedia.org/wiki/Fil:Watchmen-cover.svg "Den blodstänkta gula smileyfiguren förknippas med Watchmen")
+_**[Watchmen](https://sv.wikipedia.org/wiki/Watchmen "Watchmen")**_ (i Sverige tidigare benämnd _**Väktarna**_) är en [superhjälteserie](https://sv.wikipedia.org/wiki/Superhj%C3%A4lte "Superhjälte")/[serieroman](https://sv.wikipedia.org/wiki/Serieroman "Serieroman") i tolv delar skapad av den brittiske serieförfattaren [Alan Moore](https://sv.wikipedia.org/wiki/Alan_Moore "Alan Moore") och den brittiske serietecknaren [Dave Gibbons](https://sv.wikipedia.org/wiki/Dave_Gibbons "Dave Gibbons"). Serien publicerades först av [DC Comics](https://sv.wikipedia.org/wiki/DC_Comics "DC Comics") under september 1986 till oktober 1987 och har sedan dess tryckts om upprepade gånger som samlingsalbum. Idén till _Watchmen_ uppstod när Moore lade fram ett förslag till DC som skulle använda sig av superhjältar som företaget hade införskaffat från [Charlton Comics](https://sv.wikipedia.org/wiki/Charlton_Comics "Charlton Comics"). Eftersom Moores ursprungliga förslag skulle gjort flera av de ursprungliga rollfigurerna obrukbara för framtida berättelser övertygade redaktionschefen Dick Giordano honom om att han skulle skapa sina egna seriefigurer istället. 
+Moore använde handlingen i _Watchmen_ för att återge den samtida oron i samhället och för att kritisera hela superhjältekonceptet. I serieromanen finns en [alternativ historieskildring](https://sv.wikipedia.org/wiki/Alternativhistoria "Alternativhistoria") där superhjältar dök upp under 1940- och 1960-talen för att hjälpa [USA](https://sv.wikipedia.org/wiki/USA "USA") vinna [Vietnamkriget](https://sv.wikipedia.org/wiki/Vietnamkriget "Vietnamkriget"). Landet är på väg mot ett [kärnvapenkrig](https://sv.wikipedia.org/wiki/K%C3%A4rnvapenkrig "Kärnvapenkrig") med [Sovjetunionen](https://sv.wikipedia.org/wiki/Sovjetunionen "Sovjetunionen"), frilansande maskerade vigilanter har blivit förbjudna och de flesta av de före detta superhjältarna är antingen pensionerade eller så arbetar de för staten. Handlingen kretsar runt den personliga utvecklingen och den kamp som [protagonisterna](https://sv.wikipedia.org/wiki/Huvudperson "Huvudperson") har då de undersöker mordet på en statligt anställd superhjälte och hur de tvingas ut ur sin pensionering, vilket leder till att de senare tvingas avvärja ett kärnvapenkrig som skulle dödat miljontals människor. [► **Läs mer**](https://sv.wikipedia.org/wiki/Watchmen "Watchmen")
+* * *
+Senast visade utmärkta artiklar: [In Utero](https://sv.wikipedia.org/wiki/In_Utero "In Utero") – [Lasse Olsson](https://sv.wikipedia.org/wiki/Lasse_Olsson "Lasse Olsson") – [The Last of Us](https://sv.wikipedia.org/wiki/The_Last_of_Us "The Last of Us")
+[Redigera](https://sv.wikipedia.org/wiki/Wikipedia:Utvald_artikel/Watchmen "Wikipedia:Utvald artikel/Watchmen") **•** [Utvalt innehåll på Wikipedia](https://sv.wikipedia.org/wiki/Portal:Utvalt_inneh%C3%A5ll "Portal:Utvalt innehåll") **•** [Schema för dagens utmärkta artikel](https://sv.wikipedia.org/wiki/Mall:Utvald_artikel "Mall:Utvald artikel") **•** [Nomineringar](https://sv.wikipedia.org/wiki/Wikipedia:Artikelnomineringar "Wikipedia:Artikelnomineringar")
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/PL_Wiki_CzyWiesz_ikona.svg/38px-PL_Wiki_CzyWiesz_ikona.svg.png)](https://sv.wikipedia.org/wiki/Wikipedia:Visste_du_att... "Wikipedia:Visste du att...")
+**Visste du att …**
+[![Närcon, 2024.](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/N%C3%A4rcon_Link%C3%B6ping_universitet%2C_2024_%28cropped%29.jpg/250px-N%C3%A4rcon_Link%C3%B6ping_universitet%2C_2024_%28cropped%29.jpg)](https://sv.wikipedia.org/wiki/Fil:N%C3%A4rcon_Link%C3%B6ping_universitet,_2024_\(cropped\).jpg "Närcon, 2024.")
+  * ... **[Närcon](https://sv.wikipedia.org/wiki/N%C3%A4rcon "Närcon")** (_se bild_) startade som ett konvent för [brädspel](https://sv.wikipedia.org/wiki/Br%C3%A4dspel "Brädspel")?
+  * ... kineserna i **[religionernas Thailand](https://sv.wikipedia.org/wiki/Religion_i_Thailand "Religion i Thailand")** mestadels övergått till [theravada](https://sv.wikipedia.org/wiki/Theravada "Theravada")?
+  * ... **[Gunilla af Halmstad](https://sv.wikipedia.org/wiki/Gunilla_af_Halmstad "Gunilla af Halmstad")** var nära vän till [Sten Broman](https://sv.wikipedia.org/wiki/Sten_Broman "Sten Broman")?
+  * ... [jättar och storhuvuden](https://sv.wikipedia.org/wiki/J%C3%A4ttar_och_storhuvuden "Jättar och storhuvuden") är vanliga inslag under en **[festa major](https://sv.wikipedia.org/wiki/Festa_major "Festa major")**?
+  * ... **[Steamboat ladies](https://sv.wikipedia.org/wiki/Steamboat_ladies "Steamboat ladies")** var kvinnliga högskolestudenter som var tvungna att åka till [Dublin](https://sv.wikipedia.org/wiki/Dublin "Dublin") för att få ut den examen som förvägrades dem vid universiteten i [Oxford](https://sv.wikipedia.org/wiki/Oxford "Oxford") och [Cambridge](https://sv.wikipedia.org/wiki/Cambridge "Cambridge") på grund av deras kön?
+
+
+* * *
+  * _[Länk till äldre artikelpuffar](https://sv.wikipedia.org/wiki/Wikipedia:Visste_du_att... "Wikipedia:Visste du att...")_
+
+
+[Redigera](https://sv.wikipedia.org/wiki/Portal:Huvudsida/Visste_du_att "Portal:Huvudsida/Visste du att") **•** Från Wikipedias [nyaste artiklar](https://sv.wikipedia.org/wiki/Wikipedia:M%C3%A5nadens_artiklar "Wikipedia:Månadens artiklar") **•** [Arkiv](https://sv.wikipedia.org/wiki/Wikipedia:Visste_du_att... "Wikipedia:Visste du att...")
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Datum02.svg/40px-Datum02.svg.png)](https://sv.wikipedia.org/wiki/2_oktober "2 oktober")
+**Dagens datum**
+[![HMS Dreadnought blir brittiska flottans första ”moderna” krigsfartyg.](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/HMS_Dreadnought_%281911%29_profile_drawing.png/250px-HMS_Dreadnought_%281911%29_profile_drawing.png)](https://sv.wikipedia.org/wiki/Fil:HMS_Dreadnought_\(1911\)_profile_drawing.png "HMS Dreadnought blir brittiska flottans första ”moderna” krigsfartyg.")
+**[2 oktober](https://sv.wikipedia.org/wiki/2_oktober "2 oktober")**
+**[Guineas](https://sv.wikipedia.org/wiki/Guinea "Guinea")** nationaldag 
+Namnsdag: [Ludvig](https://sv.wikipedia.org/wiki/Ludvig "Ludvig"), [Love](https://sv.wikipedia.org/wiki/Love_\(namn\) "Love \(namn\)") (Sverige) **•** [Ludvig](https://sv.wikipedia.org/wiki/Ludvig "Ludvig") (finlandssvenska) 
+Denna dag i historien: 
+  * **[1869](https://sv.wikipedia.org/wiki/1869 "1869")** – Den [indiske](https://sv.wikipedia.org/wiki/Indien "Indien") självständighetsledaren **[Mahatma Gandhi](https://sv.wikipedia.org/wiki/Mahatma_Gandhi "Mahatma Gandhi")** föds.
+  * **[1890](https://sv.wikipedia.org/wiki/1890 "1890")** – Den [amerikanske](https://sv.wikipedia.org/wiki/USA "USA") [komikern](https://sv.wikipedia.org/wiki/Komiker "Komiker") och [skådespelaren](https://sv.wikipedia.org/wiki/Sk%C3%A5despelare "Skådespelare") **[Groucho Marx](https://sv.wikipedia.org/wiki/Groucho_Marx "Groucho Marx")** föds.
+  * **[1904](https://sv.wikipedia.org/wiki/1904 "1904")** – Den [brittiske](https://sv.wikipedia.org/wiki/Storbritannien "Storbritannien") [författaren](https://sv.wikipedia.org/wiki/F%C3%B6rfattare "Författare") **[Graham Greene](https://sv.wikipedia.org/wiki/Graham_Greene "Graham Greene")** föds.
+  * **[1906](https://sv.wikipedia.org/wiki/1906 "1906")** – På [amiral](https://sv.wikipedia.org/wiki/Amiral "Amiral") ["Jackie" Fishers](https://sv.wikipedia.org/wiki/John_Arbuthnot_Fisher "John Arbuthnot Fisher") initiativ får den [brittiska flottan](https://sv.wikipedia.org/wiki/Royal_Navy "Royal Navy") sitt första "moderna" [örlogsfartyg](https://sv.wikipedia.org/wiki/%C3%96rlogsfartyg "Örlogsfartyg"), **[HMS _Dreadnought_](https://sv.wikipedia.org/wiki/HMS_Dreadnought_\(1906\) "HMS Dreadnought \(1906\)")** (_se bild_).
+  * **[1928](https://sv.wikipedia.org/wiki/1928 "1928")**  
+– [Josemaría Escrivá](https://sv.wikipedia.org/wiki/Josemar%C3%ADa_Escriv%C3%A1 "Josemaría Escrivá") grundar den [katolska organisationen](https://sv.wikipedia.org/wiki/Katolska_samfund "Katolska samfund") **[Opus Dei](https://sv.wikipedia.org/wiki/Opus_Dei "Opus Dei")**.  
+– Den [svenske statsministern](https://sv.wikipedia.org/wiki/Sveriges_statsminister "Sveriges statsminister") **[Carl Gustaf Ekman](https://sv.wikipedia.org/wiki/Carl_Gustaf_Ekman "Carl Gustaf Ekman")** avgår och efterträds av **[Arvid Lindman](https://sv.wikipedia.org/wiki/Arvid_Lindman "Arvid Lindman")** , som därmed återkommer på posten efter 17 år.
+  * **[1950](https://sv.wikipedia.org/wiki/1950 "1950")** – Den [tecknade serien](https://sv.wikipedia.org/wiki/Tecknad_serie "Tecknad serie") _**[Snobben](https://sv.wikipedia.org/wiki/Snobben "Snobben")**_ publiceras för första gången.
+  * **[1985](https://sv.wikipedia.org/wiki/1985 "1985")** – Den amerikanske skådespelaren **[Rock Hudson](https://sv.wikipedia.org/wiki/Rock_Hudson "Rock Hudson")** avlider i [aids](https://sv.wikipedia.org/wiki/Aids "Aids"), vilket leder till ökad uppmärksamhet kring [sjukdomen](https://sv.wikipedia.org/wiki/Sjukdom "Sjukdom") i [USA](https://sv.wikipedia.org/wiki/USA "USA").
+  * **[2002](https://sv.wikipedia.org/wiki/2002 "2002")** – Före detta [gulfkrigssoldaten](https://sv.wikipedia.org/wiki/Kuwaitkriget "Kuwaitkriget") **[John Allen Muhammad](https://sv.wikipedia.org/wiki/John_Allen_Muhammad "John Allen Muhammad")** och sjuttonårige **[Lee Boyd Malvo](https://sv.wikipedia.org/wiki/Lee_Boyd_Malvo "Lee Boyd Malvo")** börjar [mörda](https://sv.wikipedia.org/wiki/Mord "Mord") människor i [Washington, D.C.](https://sv.wikipedia.org/wiki/Washington,_D.C. "Washington, D.C.")-området. De grips den [24:e](https://sv.wikipedia.org/wiki/24_oktober "24 oktober") samma månad.
+
+
+Fler händelser: [1 oktober](https://sv.wikipedia.org/wiki/1_oktober "1 oktober") **•** **[2 oktober](https://sv.wikipedia.org/wiki/2_oktober "2 oktober")** **•** [3 oktober](https://sv.wikipedia.org/wiki/3_oktober "3 oktober")
+[Redigera](https://sv.wikipedia.org/wiki/Mall:2_oktober "Mall:2 oktober") **•** [Alla dagar](https://sv.wikipedia.org/wiki/Wikipedia:Dagens_h%C3%A4ndelser "Wikipedia:Dagens händelser")
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/HS_Skand.svg/40px-HS_Skand.svg.png)
+**Dagens skandinaviska artikel**
+[![Kong Christian 10.](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Christian_X_-_Peter_Elfelt.jpg/120px-Christian_X_-_Peter_Elfelt.jpg)](https://sv.wikipedia.org/wiki/Fil:Christian_X_-_Peter_Elfelt.jpg "Kong Christian 10.")
+**[Christian 10.](https://da.wikipedia.org/wiki/Christian_10. "da:Christian 10.")** (1870-1947) var konge af Danmark fra 1912 til sin død i 1947 og konge af Island fra 1918 til 1944. 
+Sammen med sin dronning Alexandrine gjorde han en dyd ud af at besøge alle dele af kongeriget, herunder Grønland, Færøerne og Island. Kongehusets tradition med at tage på sommertogt med kongeskibet blev indført af dem. 
+Christian var sammen med regeringen aktiv i at holde Danmark uden for 1. verdenskrig. Under Påskekrisen i 1920 afskedigede han – i modstrid med Folketingets ønske – Ministeriet Zahle i håb om at få et nyvalg og derved få en større bid af Nordslesvig, herunder Flensborg. Kuppet blev dog afværget, og ved Genforeningen blev Christian igen nationalt samlingspunkt, da han red over grænsen ved Taps på en hvid hest og mødte sønderjyderne på Dybbøl. 
+Under den tyske besættelse af Danmark under 2. verdenskrig blev Christian i udlandet et symbol på den danske eftergivende holdning til nazismen, men han blev efterhånden meget populær i befolkningen på grund af sine daglige ture til hest rundt i København, og han fik efter krigen tilnavnet "Rytterkongen". [► **Læs mere**](https://da.wikipedia.org/wiki/Christian_10. "da:Christian 10.")   
+
+Mer om [dagens skandinaviska artikel](https://sv.wikipedia.org/wiki/Wikipedia:Dagens_skandinaviska_artikel "Wikipedia:Dagens skandinaviska artikel") **•** [Skanwiki](https://meta.wikimedia.org/wiki/Skanwiki "m:Skanwiki")
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Icon_of_three_people_in_different_shades_of_grey.svg/40px-Icon_of_three_people_in_different_shades_of_grey.svg.png)](https://sv.wikipedia.org/wiki/Wikipedia:Deltagarportalen "Wikipedia:Deltagarportalen")
+[**Deltagande**](https://sv.wikipedia.org/wiki/Wikipedia:Deltagarportalen "Wikipedia:Deltagarportalen")
+**[Wikipedia](https://sv.wikipedia.org/wiki/Wikipedia "Wikipedia")** är en [encyklopedi](https://sv.wikipedia.org/wiki/Uppslagsverk "Uppslagsverk") med [öppet](https://sv.wikipedia.org/wiki/%C3%96ppet_inneh%C3%A5ll "Öppet innehåll") och [fritt innehåll](https://sv.wikipedia.org/wiki/Fritt_inneh%C3%A5ll "Fritt innehåll") som utvecklas av frivilliga bidragsgivare från hela världen. Alla kan vara med och förbättra Wikipedia. Du också. [![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2d/Pen_1.svg/120px-Pen_1.svg.png)](https://sv.wikipedia.org/wiki/Fil:Pen_1.svg)
+  * [Vill du förbättra Wikipedia?](https://sv.wikipedia.org/wiki/Wikipedia:Introduktion_till_redigering "Wikipedia:Introduktion till redigering")
+  * [Behöver du hjälp?](https://sv.wikipedia.org/wiki/Wikipedia:Hj%C3%A4lp "Wikipedia:Hjälp")
+  * [Vill du ha idéer om vad du kan göra?](https://sv.wikipedia.org/wiki/Wikipedia:Deltagarportalen "Wikipedia:Deltagarportalen")
+  * [Så här är Wikipedia uppbyggt.](https://sv.wikipedia.org/wiki/Wikipedia:S%C3%A5_h%C3%A4r_%C3%A4r_Wikipedia_uppbyggt "Wikipedia:Så här är Wikipedia uppbyggt")
+
+
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/PL_Wiki_Aktualnosci_ikona.svg/38px-PL_Wiki_Aktualnosci_ikona.svg.png)](https://sv.wikipedia.org/wiki/2025 "2025")
+**Aktuella händelser**
+[![Budgetpromenaden.](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Budgetpromenaden_2025-6.jpg/250px-Budgetpromenaden_2025-6.jpg)](https://sv.wikipedia.org/wiki/Fil:Budgetpromenaden_2025-6.jpg "Budgetpromenaden.")
+  * Finansminister [Elisabeth Svantesson](https://sv.wikipedia.org/wiki/Elisabeth_Svantesson "Elisabeth Svantesson") _(se bild)_ gör den traditions­enliga **[budgetpromenaden](https://sv.wikipedia.org/wiki/Budgetpromenaden "Budgetpromenaden")** till riksdagen med 2026 års [budgetproposition](https://sv.wikipedia.org/wiki/Budgetpropositionen_till_Sveriges_riksdag "Budgetpropositionen till Sveriges riksdag"). (_22 september_)
+  * **[Kyrkovalet i Svenska kyrkan 2025](https://sv.wikipedia.org/wiki/Kyrkovalet_i_Svenska_kyrkan_2025 "Kyrkovalet i Svenska kyrkan 2025")** genomförs. (_21 september_)
+  * Den amerikanske skådespelaren och regissören **[Robert Redford](https://sv.wikipedia.org/wiki/Robert_Redford "Robert Redford")** avlider, 89 år gammal. (_16 september_)
+  * Den [amerikanske](https://sv.wikipedia.org/wiki/USA "USA") [högerdebattören](https://sv.wikipedia.org/wiki/Politisk_h%C3%B6ger "Politisk höger") **[Charlie Kirk](https://sv.wikipedia.org/wiki/Charlie_Kirk "Charlie Kirk")** mördas vid ett möte i [Utah](https://sv.wikipedia.org/wiki/Utah "Utah"), 31 år gammal. (_10 september_)
+  * Det rödgröna blocket, under ledning av [Norges statsminister](https://sv.wikipedia.org/wiki/Norges_statsminister "Norges statsminister") [Jonas Gahr Støre](https://sv.wikipedia.org/wiki/Jonas_Gahr_St%C3%B8re "Jonas Gahr Støre"), vinner **[Stortingsvalet 2025](https://sv.wikipedia.org/wiki/Stortingsvalet_2025 "Stortingsvalet 2025")**. (_8 september_)
+
+
+* * *
+**[Nyligen avlidna](https://sv.wikipedia.org/wiki/Avlidna_2025 "Avlidna 2025"):** [Jane Goodall](https://sv.wikipedia.org/wiki/Jane_Goodall "Jane Goodall") (1/10) ·  [Assata Shakur](https://sv.wikipedia.org/wiki/Assata_Shakur "Assata Shakur") (25/9) ·  [Claudia Cardinale](https://sv.wikipedia.org/wiki/Claudia_Cardinale "Claudia Cardinale") (23/9) ·  [Tomas "Tompa" Lindberg](https://sv.wikipedia.org/wiki/Tomas_Lindberg "Tomas Lindberg") (16/9) ·  [Per Mattsson](https://sv.wikipedia.org/wiki/Per_Mattsson "Per Mattsson") (12/9)   
+**[Pågående eller kommande händelser](https://sv.wikipedia.org/wiki/Portal:Aktuella_h%C3%A4ndelser "Portal:Aktuella händelser"):** [Operation Prosperity Guardian](https://sv.wikipedia.org/wiki/Huthirebellernas_attacker_mot_kommersiella_fartyg_i_R%C3%B6da_havet "Huthirebellernas attacker mot kommersiella fartyg i Röda havet") utanför Jemen   
+**[Pågående större krig](https://sv.wikipedia.org/wiki/Krig#P%C3%A5g%C3%A5ende_st%C3%B6rre_krig "Krig"):** [Gaza](https://sv.wikipedia.org/wiki/Kriget_mellan_Hamas_och_Israel_\(p%C3%A5g%C3%A5ende_sedan_2023\) "Kriget mellan Hamas och Israel \(pågående sedan 2023\)") ·  [Rysslands invasion av Ukraina](https://sv.wikipedia.org/wiki/Rysslands_invasion_av_Ukraina "Rysslands invasion av Ukraina") ·  [Sudan](https://sv.wikipedia.org/wiki/Konflikten_i_Sudan_2023 "Konflikten i Sudan 2023") ·  [Jemen](https://sv.wikipedia.org/wiki/Inb%C3%B6rdeskriget_i_Jemen_\(2014%E2%80%93nutid\) "Inbördeskriget i Jemen \(2014–nutid\)") ·  [Myanmar](https://sv.wikipedia.org/wiki/Burmesiska_inb%C3%B6rdeskriget "Burmesiska inbördeskriget")   
+**[Mest visad igår](https://top.hatnote.com/sv/) :** [Jane Goodall](https://sv.wikipedia.org/wiki/Jane_Goodall "Jane Goodall") ·  [**Mest visade 2025**](https://sv.wikipedia.org/wiki/Wikipedia:Mest_visade_artiklar_2025#10-1 "Wikipedia:Mest visade artiklar 2025")
+[Redigera](https://sv.wikipedia.org/wiki/Portal:Huvudsida/Aktuella_h%C3%A4ndelser "Portal:Huvudsida/Aktuella händelser") **•** [Fler händelser](https://sv.wikipedia.org/wiki/2025#Oktober "2025")
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/PL_Wiki_InM_ikona.svg/38px-PL_Wiki_InM_ikona.svg.png)](https://sv.wikipedia.org/wiki/Wikipedia:Tidigare_utvalda_bilder "Wikipedia:Tidigare utvalda bilder")
+**Utvald bild**
+[![Järnvägsviadukt i sydvästra Polen.](https://upload.wikimedia.org/wikipedia/commons/thumb/4/40/2024_Wiadukt_kolejowy_w_Lewinie_K%C5%82odzkim_%2811%29.jpg/500px-2024_Wiadukt_kolejowy_w_Lewinie_K%C5%82odzkim_%2811%29.jpg)](https://sv.wikipedia.org/wiki/Fil:2024_Wiadukt_kolejowy_w_Lewinie_K%C5%82odzkim_\(11\).jpg "Järnvägsviadukt i sydvästra Polen.")
+Vindlande järnvägslinje med **[viadukt](https://sv.wikipedia.org/wiki/Viadukt "Viadukt")** , genom [Sudeterna](https://sv.wikipedia.org/wiki/Sudeterna "Sudeterna") i sydvästra Polen. 
+[Arkiv](https://sv.wikipedia.org/wiki/Wikipedia:Tidigare_utvalda_bilder "Wikipedia:Tidigare utvalda bilder") **•** [Fler utvalda bilder](https://sv.wikipedia.org/wiki/Wikipedia:Utvalda_bilder "Wikipedia:Utvalda bilder")
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Wikimedia-logo.svg/40px-Wikimedia-logo.svg.png)](https://www.wikimedia.org)
+**Wikipedias systerprojekt**
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Commons-logo.svg/40px-Commons-logo.svg.png)](https://commons.wikimedia.org/wiki/Huvudsida "commons:Huvudsida") |  [**Commons**](https://commons.wikimedia.org/wiki/Huvudsida "commons:Huvudsida")   
+Den fria medie­data­basen  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f9/Wiktionary_small.svg/40px-Wiktionary_small.svg.png)](https://sv.wiktionary.org/wiki/ "wikt:") |  [**Wiktionary**](https://sv.wiktionary.org/wiki/ "wikt:")   
+Den fria ord­boken  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4c/Wikisource-logo.svg/40px-Wikisource-logo.svg.png)](https://sv.wikisource.org/wiki/ "src:") |  [**Wikisource**](https://sv.wikisource.org/wiki/ "src:")   
+Det fria biblioteket   
+---|---|---|---|---|---  
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Wikiquote-logo.svg/40px-Wikiquote-logo.svg.png)](https://sv.wikiquote.org/wiki/ "q:") |  [**Wikiquote**](https://sv.wikiquote.org/wiki/ "q:")   
+Den fria citat­samlingen  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Wikivoyage-Logo-v3-icon.svg/40px-Wikivoyage-Logo-v3-icon.svg.png)](https://sv.wikivoyage.org/wiki/ "voy:") |  [**Wikivoyage**](https://sv.wikivoyage.org/wiki/ "voy:")   
+Den fria rese­guiden  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/Wikispecies-logo.svg/40px-Wikispecies-logo.svg.png)](https://species.wikimedia.org/wiki/Huvudsida "wikispecies:Huvudsida") |  [**Wikispecies**](https://species.wikimedia.org/wiki/Huvudsida "wikispecies:Huvudsida")   
+Den fria art­förteck­ningen   
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/ff/Wikidata-logo.svg/40px-Wikidata-logo.svg.png)](https://www.wikidata.org/wiki/Wikidata:Huvudsida "d:Wikidata:Huvudsida") |  [**Wikidata**](https://www.wikidata.org/wiki/Wikidata:Huvudsida "d:Wikidata:Huvudsida")   
+Den fria data­basen  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Wikibooks-logo.svg/40px-Wikibooks-logo.svg.png)](https://sv.wikibooks.org/wiki/ "b:") |  [**Wikibooks**](https://sv.wikibooks.org/wiki/ "b:")   
+Fria läro­böcker och manualer  | [![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Wikimedia_Community_Logo.svg/40px-Wikimedia_Community_Logo.svg.png)](https://meta.wikimedia.org/wiki/Huvudsida "m:Huvudsida") |  [**Meta-Wiki**](https://meta.wikimedia.org/wiki/Huvudsida "m:Huvudsida")   
+Om projekten   
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Wikimania.svg/40px-Wikimania.svg.png)](https://meta.wikimedia.org/wiki/Wikimania:Wikimania "m:Wikimania:Wikimania") |  [**Wikimania**](https://meta.wikimedia.org/wiki/Wikimania:Wikimania "m:Wikimania:Wikimania")   
+Konferensen för projekten om fri kunskap   
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Gnome-globe.svg/40px-Gnome-globe.svg.png)](https://www.wikipedia.org)
+**Wikipedia på andra språk**
+**Upplagor med fler än 1 000 000 artiklar**  
+[ العربية](https://ar.wikipedia.org/wiki/ "ar:") · [Sinugboanong Binisaya](https://ceb.wikipedia.org/wiki/ "ceb:") · [Deutsch](https://de.wikipedia.org/wiki/ "de:") · [English](https://en.wikipedia.org/wiki/ "en:") · [Español](https://es.wikipedia.org/wiki/ "es:") · [Français](https://fr.wikipedia.org/wiki/ "fr:") · [Italiano](https://it.wikipedia.org/wiki/ "it:") · [日本語](https://ja.wikipedia.org/wiki/ "ja:") · [Nederlands](https://nl.wikipedia.org/wiki/ "nl:") · [Polski](https://pl.wikipedia.org/wiki/ "pl:") · [Português](https://pt.wikipedia.org/wiki/ "pt:") · [Русский](https://ru.wikipedia.org/wiki/ "ru:") · [Українська](https://uk.wikipedia.org/wiki/ "uk:") · [Tiếng Việt](https://vi.wikipedia.org/wiki/ "vi:") · [Winaray](https://war.wikipedia.org/wiki/ "war:") · [中文](https://zh.wikipedia.org/wiki/ "zh:") · [مصرى (Maṣri)](https://arz.wikipedia.org/wiki/ "arz:")
+**Upplagor med fler än 500 000 artiklar**  
+[ Català](https://ca.wikipedia.org/wiki/ "ca:") · [Нохчийн](https://ce.wikipedia.org/wiki/ "ce:") · [Čeština](https://cs.wikipedia.org/wiki/ "cs:") · [فارسی](https://fa.wikipedia.org/wiki/ "fa:") · [Suomi](https://fi.wikipedia.org/wiki/ "fi:") · [Magyar](https://hu.wikipedia.org/wiki/ "hu:") · [Bahasa Indonesia](https://id.wikipedia.org/wiki/ "id:") · [한국어](https://ko.wikipedia.org/wiki/ "ko:") · [Norsk (bokmål)](https://no.wikipedia.org/wiki/ "no:") · [Српски](https://sr.wikipedia.org/wiki/ "sr:") · [Tatarça / Татарча](https://tt.wikipedia.org/wiki/ "tt:") · [Türkçe](https://tr.wikipedia.org/wiki/ "tr:")
+**Upplagor med fler än 250 000 artiklar**  
+[ Български](https://bg.wikipedia.org/wiki/ "bg:") · [ Cymraeg ](https://cy.wikipedia.org/wiki/ "cy:") · [Euskara](https://eu.wikipedia.org/wiki/ "eu:") · [Dansk](https://da.wikipedia.org/wiki/ "da:") · [Esperanto](https://eo.wikipedia.org/wiki/ "eo:") · [עברית](https://he.wikipedia.org/wiki/ "he:") · [Հայերեն](https://hy.wikipedia.org/wiki/ "hy:") · [Bahasa Melayu](https://ms.wikipedia.org/wiki/ "ms:") · [Română](https://ro.wikipedia.org/wiki/ "ro:") · [Srpskohrvatski / Српскохрватски](https://sh.wikipedia.org/wiki/ "sh:") · [Bân-lâm-gú](https://zh-min-nan.wikipedia.org/wiki/ "zh-min-nan:")
+Lista över [samtliga språkversioner av Wikipedia](https://meta.wikimedia.org/wiki/List_of_Wikipedias "meta:List of Wikipedias")
+Visas felaktigt datum på huvudsidan? Prova att **[rensa sidans cacheminne](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&action=purge).**
+Hämtad från ”[https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&oldid=54298875](https://sv.wikipedia.org/w/index.php?title=Portal:Huvudsida&oldid=54298875)”
+[Kategori](https://sv.wikipedia.org/wiki/Wikipedia:Kategorier "Wikipedia:Kategorier"): 
+  * [Huvudsida](https://sv.wikipedia.org/wiki/Kategori:Huvudsida "Kategori:Huvudsida")
+
+
+353 språk
+  * [Acèh](https://ace.wikipedia.org/wiki/%C3%94n_Keue "Ôn Keue – acehnesiska")
+  * [Адыгэбзэ](https://kbd.wikipedia.org/wiki/%D0%9D%D0%B0%D0%BF%D1%8D%D0%BA%D3%80%D1%83%D1%8D%D1%86%D3%80_%D0%BD%D1%8D%D1%85%D1%8A%D1%8B%D1%89%D1%85%D1%8C%D1%8D "НапэкӀуэцӀ нэхъыщхьэ – kabardinska")
+  * [Адыгабзэ](https://ady.wikipedia.org/wiki/%D0%9D%D1%8D%D0%BA%D3%80%D1%83%D0%B1%D0%B3%D1%8A%D0%BE_%D1%88%D1%8A%D1%85%D1%8C%D0%B0%D3%80 "НэкӀубгъо шъхьаӀ – adygeiska")
+  * [Afrikaans](https://af.wikipedia.org/wiki/Tuisblad "Tuisblad – afrikaans")
+  * [Alemannisch](https://als.wikipedia.org/wiki/Wikipedia:Houptsyte "Wikipedia:Houptsyte – schweizertyska")
+  * [Алтай тил](https://alt.wikipedia.org/wiki/%D0%A2%D3%A7%D1%81_%D0%B1%D3%B1%D0%BA "Тӧс бӱк – sydaltaiska")
+  * [አማርኛ](https://am.wikipedia.org/wiki/%E1%8B%8B%E1%8A%93%E1%8B%8D_%E1%8C%88%E1%8C%BD "ዋናው ገጽ – amhariska")
+  * [Anarâškielâ](https://smn.wikipedia.org/wiki/Ovd%C3%A2sij%C4%91o "Ovdâsijđo – enaresamiska")
+  * [अंगिका](https://anp.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुख्य पृष्ठ – angika")
+  * [Ænglisc](https://ang.wikipedia.org/wiki/Heafodtramet "Heafodtramet – fornengelska")
+  * [Аԥсшәа](https://ab.wikipedia.org/wiki/%D0%98%D1%85%D0%B0%D0%B4%D0%BE%D1%83_%D0%B0%D0%B4%D0%B0%D2%9F%D1%8C%D0%B0 "Ихадоу адаҟьа – abchaziska")
+  * [العربية](https://ar.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9 "الصفحة الرئيسة – arabiska")
+  * [Aragonés](https://an.wikipedia.org/wiki/Portalada "Portalada – aragonesiska")
+  * [ܐܪܡܝܐ](https://arc.wikipedia.org/wiki/%DC%A6%DC%90%DC%AC%DC%90_%DC%AA%DC%9D%DC%AB%DC%9D%DC%AC%DC%90 "ܦܐܬܐ ܪܝܫܝܬܐ – arameiska")
+  * [Արեւմտահայերէն](https://hyw.wikipedia.org/wiki/%D4%B3%D5%AC%D5%AD%D5%A1%D6%82%D5%B8%D6%80_%D4%B7%D5%BB "Գլխաւոր Էջ – Western Armenian")
+  * [Armãneashti](https://roa-rup.wikipedia.org/wiki/Prota_fr%C3%A3ndz%C3%A3 "Prota frãndzã – arumänska")
+  * [Arpetan](https://frp.wikipedia.org/wiki/Vouiquip%C3%A8dia:Re%C3%A7ua_princip%C3%A2la "Vouiquipèdia:Reçua principâla – frankoprovensalska")
+  * [অসমীয়া](https://as.wikipedia.org/wiki/%E0%A6%AC%E0%A7%87%E0%A6%9F%E0%A7%81%E0%A6%AA%E0%A6%BE%E0%A6%A4 "বেটুপাত – assamesiska")
+  * [Asturianu](https://ast.wikipedia.org/wiki/Portada "Portada – asturiska")
+  * [Atikamekw](https://atj.wikipedia.org/wiki/Otitikowin "Otitikowin – atikamekw")
+  * [अवधी](https://awa.wikipedia.org/wiki/%E0%A4%AA%E0%A5%8D%E0%A4%B0%E0%A4%A7%E0%A4%BE%E0%A4%A8_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "प्रधान पन्ना – awadhi")
+  * [Avañe'ẽ](https://gn.wikipedia.org/wiki/Kuatia_%C3%91epyr%C5%A9ha "Kuatia Ñepyrũha – guaraní")
+  * [Авар](https://av.wikipedia.org/wiki/%D0%91%D0%B5%D1%82%D3%80%D0%B5%D1%80%D0%B0%D0%B1_%D0%B3%D1%8C%D1%83%D0%BC%D0%B5%D1%80 "БетӀераб гьумер – avariska")
+  * [Aymar aru](https://ay.wikipedia.org/wiki/Nayriri_u%C3%B1stawi "Nayriri uñstawi – aymara")
+  * [Azərbaycanca](https://az.wikipedia.org/wiki/Ana_s%C9%99hif%C9%99 "Ana səhifə – azerbajdzjanska")
+  * [تۆرکجه](https://azb.wikipedia.org/wiki/%D8%A2%D9%86%D8%A7_%D8%B5%D9%81%D8%AD%D9%87 "آنا صفحه – South Azerbaijani")
+  * [Basa Bali](https://ban.wikipedia.org/wiki/Kaca_Utama "Kaca Utama – balinesiska")
+  * [Bamanankan](https://bm.wikipedia.org/wiki/Ny%C9%9B_f%C9%94l%C9%94 "Nyɛ fɔlɔ – bambara")
+  * [বাংলা](https://bn.wikipedia.org/wiki/%E0%A6%AA%E0%A7%8D%E0%A6%B0%E0%A6%A7%E0%A6%BE%E0%A6%A8_%E0%A6%AA%E0%A6%BE%E0%A6%A4%E0%A6%BE "প্রধান পাতা – bengali")
+  * [Banjar](https://bjn.wikipedia.org/wiki/Laman_Tatambaian "Laman Tatambaian – banjariska")
+  * [閩南語 / Bân-lâm-gí](https://zh-min-nan.wikipedia.org/wiki/Th%C3%A2u-ia%CC%8Dh "Thâu-ia̍h – min nan")
+  * [Basa Banyumasan](https://map-bms.wikipedia.org/wiki/Kaca_Utama "Kaca Utama – Banyumasan")
+  * [Башҡортса](https://ba.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B8%D1%82 "Баш бит – basjkiriska")
+  * [Беларуская](https://be.wikipedia.org/wiki/%D0%93%D0%B0%D0%BB%D0%BE%D1%9E%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D0%B0%D1%80%D0%BE%D0%BD%D0%BA%D0%B0 "Галоўная старонка – belarusiska")
+  * [Беларуская (тарашкевіца)](https://be-tarask.wikipedia.org/wiki/%D0%93%D0%B0%D0%BB%D0%BE%D1%9E%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D0%B0%D1%80%D0%BE%D0%BD%D0%BA%D0%B0 "Галоўная старонка – belarusiska \(tarasjkevitsa\)")
+  * [भोजपुरी](https://bh.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "मुख्य पन्ना – Bhojpuri")
+  * [Bikol Central](https://bcl.wikipedia.org/wiki/Panginot_na_Pahina "Panginot na Pahina – Central Bikol")
+  * [Bislama](https://bi.wikipedia.org/wiki/Nambawan_Pej "Nambawan Pej – bislama")
+  * [Български](https://bg.wikipedia.org/wiki/%D0%9D%D0%B0%D1%87%D0%B0%D0%BB%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Начална страница – bulgariska")
+  * [Boarisch](https://bar.wikipedia.org/wiki/Wikipedia:Hoamseitn "Wikipedia:Hoamseitn – bayerska")
+  * [བོད་ཡིག](https://bo.wikipedia.org/wiki/%E0%BD%82%E0%BD%99%E0%BD%BC%E0%BC%8B%E0%BD%84%E0%BD%BC%E0%BD%A6%E0%BC%8D "གཙོ་ངོས། – tibetanska")
+  * [Bosanski](https://bs.wikipedia.org/wiki/Po%C4%8Detna_strana "Početna strana – bosniska")
+  * [Brezhoneg](https://br.wikipedia.org/wiki/Degemer "Degemer – bretonska")
+  * [Буряад](https://bxr.wikipedia.org/wiki/%D0%9D%D1%8E%D1%83%D1%80_%D1%85%D1%83%D1%83%D0%B4%D0%B0%D2%BB%D0%B0%D0%BD "Нюур хуудаһан – Russia Buriat")
+  * [Català](https://ca.wikipedia.org/wiki/Portada "Portada – katalanska")
+  * [Чӑвашла](https://cv.wikipedia.org/wiki/%D0%A2%C4%95%D0%BF_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Тĕп страница – tjuvasjiska")
+  * [Cebuano](https://ceb.wikipedia.org/wiki/Unang_Panid "Unang Panid – cebuano")
+  * [Čeština](https://cs.wikipedia.org/wiki/Hlavn%C3%AD_strana "Hlavní strana – tjeckiska")
+  * [Chamoru](https://ch.wikipedia.org/wiki/Fanhaluman "Fanhaluman – chamorro")
+  * [Chavacano de Zamboanga](https://cbk-zam.wikipedia.org/wiki/El_Primero_Pagina "El Primero Pagina – Chavacano")
+  * [Chi-Chewa](https://ny.wikipedia.org/wiki/Tsamba_Lalikulu "Tsamba Lalikulu – nyanja")
+  * [ChiShona](https://sn.wikipedia.org/wiki/Peji_Rekutanga "Peji Rekutanga – shona")
+  * [ChiTumbuka](https://tum.wikipedia.org/wiki/Jani_likulu "Jani likulu – tumbuka")
+  * [Chahta anumpa](https://cho.wikipedia.org/wiki/Main_Page "Main Page – choctaw")
+  * [Corsu](https://co.wikipedia.org/wiki/Pagina_maestra "Pagina maestra – korsikanska")
+  * [Cymraeg](https://cy.wikipedia.org/wiki/Hafan "Hafan – walesiska")
+  * [Dagbanli](https://dag.wikipedia.org/wiki/Sol%C9%94%C9%A3u "Solɔɣu – Dagbani")
+  * [Dansk](https://da.wikipedia.org/wiki/Forside "Forside – danska")
+  * [الدارجة](https://ary.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9_%D8%A7%D9%84%D9%84%D9%88%D9%84%D8%A7 "الصفحة اللولا – marockansk arabiska")
+  * [Davvisámegiella](https://se.wikipedia.org/wiki/Port%C3%A1la:Ovdasiidu "Portála:Ovdasiidu – nordsamiska")
+  * [Deitsch](https://pdc.wikipedia.org/wiki/Haaptblatt "Haaptblatt – Pennsylvaniatyska")
+  * [Deutsch](https://de.wikipedia.org/wiki/Wikipedia:Hauptseite "Wikipedia:Hauptseite – tyska")
+  * [ދިވެހިބަސް](https://dv.wikipedia.org/wiki/%DE%89%DE%A6%DE%87%DE%A8_%DE%9E%DE%A6%DE%8A%DE%B0%DE%99%DE%A7 "މައި ޞަފްޙާ – divehi")
+  * [Diné bizaad](https://nv.wikipedia.org/wiki/%C3%8Diyis%C3%AD%C3%AD_Naaltsoos "Íiyisíí Naaltsoos – navaho")
+  * [Dolnoserbski](https://dsb.wikipedia.org/wiki/G%C5%82owny_bok "Głowny bok – lågsorbiska")
+  * [डोटेली](https://dty.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "मुख्य पन्ना – Doteli")
+  * [ཇོང་ཁ](https://dz.wikipedia.org/wiki/%E0%BD%98%E0%BC%8B%E0%BD%A4%E0%BD%BC%E0%BD%82%E0%BC%8D "མ་ཤོག། – dzongkha")
+  * [Ebon](https://mh.wikipedia.org/wiki/Main_Page "Main Page – marshalliska")
+  * [Eesti](https://et.wikipedia.org/wiki/Vikipeedia:Esileht "Vikipeedia:Esileht – estniska")
+  * [Ελληνικά](https://el.wikipedia.org/wiki/%CE%A0%CF%8D%CE%BB%CE%B7:%CE%9A%CF%8D%CF%81%CE%B9%CE%B1 "Πύλη:Κύρια – grekiska")
+  * [Emiliàn e rumagnòl](https://eml.wikipedia.org/wiki/PP "PP – Emiliano-Romagnolo")
+  * [English](https://en.wikipedia.org/wiki/Main_Page "Main Page – engelska")
+  * [Эрзянь](https://myv.wikipedia.org/wiki/%D0%9F%D1%80%D1%8F%D0%B2%D1%82%D0%BB%D0%BE%D0%BF%D0%B0 "Прявтлопа – erjya")
+  * [Español](https://es.wikipedia.org/wiki/Wikipedia:Portada "Wikipedia:Portada – spanska")
+  * [Esperanto](https://eo.wikipedia.org/wiki/Vikipedio:%C4%88efpa%C4%9Do "Vikipedio:Ĉefpaĝo – esperanto")
+  * [Estremeñu](https://ext.wikipedia.org/wiki/Port%C3%A1_antigua "Portá antigua – extremaduriska")
+  * [Euskara](https://eu.wikipedia.org/wiki/Azala "Azala – baskiska")
+  * [Eʋegbe](https://ee.wikipedia.org/wiki/Axa_do_%C5%8Ag%C9%94 "Axa do Ŋgɔ – ewe")
+  * [Farefare](https://gur.wikipedia.org/wiki/P%C9%9Bgezure "Pɛgezure – farefare")
+  * [فارسی](https://fa.wikipedia.org/wiki/%D8%B5%D9%81%D8%AD%D9%87%D9%94_%D8%A7%D8%B5%D9%84%DB%8C "صفحهٔ اصلی – persiska")
+  * [Fiji Hindi](https://hif.wikipedia.org/wiki/Pahila_Panna "Pahila Panna – Fiji-hindi")
+  * [Føroyskt](https://fo.wikipedia.org/wiki/Fors%C3%AD%C3%B0a "Forsíða – färöiska")
+  * [Français](https://fr.wikipedia.org/wiki/Wikip%C3%A9dia:Accueil_principal "Wikipédia:Accueil principal – franska")
+  * [Frysk](https://fy.wikipedia.org/wiki/Haadside "Haadside – västfrisiska")
+  * [Fulfulde](https://ff.wikipedia.org/wiki/Hello_ja%C9%93%C9%93orgo "Hello jaɓɓorgo – fulani")
+  * [Furlan](https://fur.wikipedia.org/wiki/Pagjine_princip%C3%A2l "Pagjine principâl – friulianska")
+  * [Gaeilge](https://ga.wikipedia.org/wiki/Pr%C3%ADomhleathanach "Príomhleathanach – iriska")
+  * [Gaelg](https://gv.wikipedia.org/wiki/Ard-ghuillag "Ard-ghuillag – manx")
+  * [Gagauz](https://gag.wikipedia.org/wiki/Ba%C5%9F_yaprak "Baş yaprak – gagauziska")
+  * [Gàidhlig](https://gd.wikipedia.org/wiki/Pr%C3%AComh-Dhuilleag "Prìomh-Dhuilleag – skotsk gaeliska")
+  * [Galego](https://gl.wikipedia.org/wiki/Portada "Portada – galiciska")
+  * [ГӀалгӀай](https://inh.wikipedia.org/wiki/%D0%9A%D0%B5%D1%80%D1%82%D1%82%D0%B5%D1%80%D0%B0_%D0%BE%D0%B0%D0%B3%D3%80%D1%83%D0%B2 "Керттера оагӀув – ingusjiska")
+  * [贛語](https://gan.wikipedia.org/wiki/%E5%B0%81%E9%9D%A2 "封面 – gan")
+  * [Gĩkũyũ](https://ki.wikipedia.org/wiki/Main_Page "Main Page – kikuyu")
+  * [گیلکی](https://glk.wikipedia.org/wiki/%DA%AF%D8%AA%CB%87_%D9%88%D9%84%DA%AF "گتˇ ولگ – gilaki")
+  * [ગુજરાતી](https://gu.wikipedia.org/wiki/%E0%AA%AE%E0%AB%81%E0%AA%96%E0%AA%AA%E0%AB%83%E0%AA%B7%E0%AB%8D%E0%AA%A0 "મુખપૃષ્ઠ – gujarati")
+  * [𐌲𐌿𐍄𐌹𐍃𐌺](https://got.wikipedia.org/wiki/%F0%90%8C%B0%F0%90%8C%BD%F0%90%8C%B0%F0%90%8D%83%F0%90%8D%84%F0%90%8D%89%F0%90%8C%B3%F0%90%8C%B4%F0%90%8C%B9%F0%90%8C%BD%F0%90%8C%B9%F0%90%8C%BB%F0%90%8C%B0%F0%90%8C%BF%F0%90%8D%86%F0%90%8D%83 "𐌰𐌽𐌰𐍃𐍄𐍉𐌳𐌴𐌹𐌽𐌹𐌻𐌰𐌿𐍆𐍃 – gotiska")
+  * [गोंयची कोंकणी / Gõychi Konknni](https://gom.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%87%E0%A4%B2_%E0%A4%AA%E0%A4%BE%E0%A4%A8 "मुखेल पान – Goan Konkani")
+  * [Gungbe](https://guw.wikipedia.org/wiki/Weda_Tangan "Weda Tangan – Gun")
+  * [客家語 / Hak-kâ-ngî](https://hak.wikipedia.org/wiki/Th%C3%A8u-Ya%CC%8Dp "Thèu-Ya̍p – hakka")
+  * [Хальмг](https://xal.wikipedia.org/wiki/%D0%9D%D2%AF%D1%80_%D1%85%D0%B0%D0%BB%D1%85 "Нүр халх – kalmuckiska")
+  * [한국어](https://ko.wikipedia.org/wiki/%EC%9C%84%ED%82%A4%EB%B0%B1%EA%B3%BC:%EB%8C%80%EB%AC%B8 "위키백과:대문 – koreanska")
+  * [Hausa](https://ha.wikipedia.org/wiki/Babban_shafi "Babban shafi – hausa")
+  * [Hawaiʻi](https://haw.wikipedia.org/wiki/Ka_papa_kinohi "Ka papa kinohi – hawaiiska")
+  * [Հայերեն](https://hy.wikipedia.org/wiki/%D4%B3%D5%AC%D5%AD%D5%A1%D5%BE%D5%B8%D6%80_%D5%A7%D5%BB "Գլխավոր էջ – armeniska")
+  * [हिन्दी](https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुखपृष्ठ – hindi")
+  * [Hiri Motu](https://ho.wikipedia.org/wiki/Main_Page "Main Page – hirimotu")
+  * [Hornjoserbsce](https://hsb.wikipedia.org/wiki/H%C5%82owna_strona "Hłowna strona – högsorbiska")
+  * [Hrvatski](https://hr.wikipedia.org/wiki/Glavna_stranica "Glavna stranica – kroatiska")
+  * [Bahasa Hulontalo](https://gor.wikipedia.org/wiki/Halaman_Bungaliyo "Halaman Bungaliyo – gorontalo")
+  * [Ido](https://io.wikipedia.org/wiki/Frontispico "Frontispico – ido")
+  * [Igbo](https://ig.wikipedia.org/wiki/Ihu_m%CC%80b%E1%BB%A5 "Ihu m̀bụ – igbo")
+  * [Ilokano](https://ilo.wikipedia.org/wiki/Umuna_a_Panid "Umuna a Panid – iloko")
+  * [বিষ্ণুপ্রিয়া মণিপুরী](https://bpy.wikipedia.org/wiki/%E0%A6%AA%E0%A6%AF%E0%A6%BC%E0%A6%B2%E0%A6%BE_%E0%A6%AA%E0%A6%BE%E0%A6%A4%E0%A6%BE "পয়লা পাতা – bishnupriya")
+  * [Bahasa Indonesia](https://id.wikipedia.org/wiki/Halaman_Utama "Halaman Utama – indonesiska")
+  * [Interlingua](https://ia.wikipedia.org/wiki/Pagina_principal "Pagina principal – interlingua")
+  * [Interlingue](https://ie.wikipedia.org/wiki/Principal_p%C3%A1gine "Principal págine – interlingue")
+  * [ᐃᓄᒃᑎᑐᑦ / inuktitut](https://iu.wikipedia.org/wiki/%E1%90%8A%E1%92%A5%E1%96%85 "ᐊᒥᖅ – inuktitut")
+  * [Iñupiatun](https://ik.wikipedia.org/wiki/Aulla%C4%A1niisaa%C4%A1vik "Aullaġniisaaġvik – inupiak")
+  * [Ирон](https://os.wikipedia.org/wiki/%D0%A1%C3%A6%D0%B9%D1%80%D0%B0%D0%B3_%D1%84%D0%B0%D1%80%D1%81 "Сæйраг фарс – ossetiska")
+  * [IsiXhosa](https://xh.wikipedia.org/wiki/Iphepha_Elingundoqo "Iphepha Elingundoqo – xhosa")
+  * [IsiZulu](https://zu.wikipedia.org/wiki/Ikhasi_Elikhulu "Ikhasi Elikhulu – zulu")
+  * [Íslenska](https://is.wikipedia.org/wiki/Fors%C3%AD%C3%B0a "Forsíða – isländska")
+  * [Italiano](https://it.wikipedia.org/wiki/Pagina_principale "Pagina principale – italienska")
+  * [עברית](https://he.wikipedia.org/wiki/%D7%A2%D7%9E%D7%95%D7%93_%D7%A8%D7%90%D7%A9%D7%99 "עמוד ראשי – hebreiska")
+  * [Jawa](https://jv.wikipedia.org/wiki/Wikip%C3%A9dia:Pendhapa "Wikipédia:Pendhapa – javanesiska")
+  * [Kabɩyɛ](https://kbp.wikipedia.org/wiki/Tal%C9%A9_%C9%96eu "Talɩ ɖeu – Kabiye")
+  * [Kalaallisut](https://kl.wikipedia.org/wiki/Saqqaa "Saqqaa – grönländska")
+  * [ಕನ್ನಡ](https://kn.wikipedia.org/wiki/%E0%B2%AE%E0%B3%81%E0%B2%96%E0%B3%8D%E0%B2%AF_%E0%B2%AA%E0%B3%81%E0%B2%9F "ಮುಖ್ಯ ಪುಟ – kannada")
+  * [Kanuri](https://kr.wikipedia.org/wiki/Main_Page "Main Page – kanuri")
+  * [Kapampangan](https://pam.wikipedia.org/wiki/Pun_Bulung "Pun Bulung – pampanga")
+  * [Къарачай-малкъар](https://krc.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B5%D1%82 "Баш бет – karachay-balkar")
+  * [ქართული](https://ka.wikipedia.org/wiki/%E1%83%9B%E1%83%97%E1%83%90%E1%83%95%E1%83%90%E1%83%A0%E1%83%98_%E1%83%92%E1%83%95%E1%83%94%E1%83%A0%E1%83%93%E1%83%98 "მთავარი გვერდი – georgiska")
+  * [کٲشُر](https://ks.wikipedia.org/wiki/%D8%A7%D9%8E%DB%81%D9%8E%D9%85_%D8%B5%D9%8E%D9%81%DB%81%D9%95 "اَہَم صَفہٕ – kashmiriska")
+  * [Kaszëbsczi](https://csb.wikipedia.org/wiki/Prz%C3%A9dn%C3%B4_starna "Przédnô starna – kasjubiska")
+  * [Қазақша](https://kk.wikipedia.org/wiki/%D0%91%D0%B0%D1%81%D1%82%D1%8B_%D0%B1%D0%B5%D1%82 "Басты бет – kazakiska")
+  * [Kernowek](https://kw.wikipedia.org/wiki/Folen_dre "Folen dre – korniska")
+  * [Ikinyarwanda](https://rw.wikipedia.org/wiki/Intangiriro "Intangiriro – kinjarwanda")
+  * [Ikirundi](https://rn.wikipedia.org/wiki/Urupapuro_nyamukuru "Urupapuro nyamukuru – rundi")
+  * [Kiswahili](https://sw.wikipedia.org/wiki/Mwanzo "Mwanzo – swahili")
+  * [Коми](https://kv.wikipedia.org/wiki/%D0%9C%D0%B5%D0%B4%D1%88%D3%A7%D1%80_%D0%BB%D0%B8%D1%81%D1%82_%D0%B1%D0%BE%D0%BA "Медшӧр лист бок – kome")
+  * [Kongo](https://kg.wikipedia.org/wiki/Muk%C3%A2nda_ya_ngudi "Mukânda ya ngudi – kikongo")
+  * [Kotava](https://avk.wikipedia.org/wiki/Xadola "Xadola – kotava")
+  * [Kreyòl ayisyen](https://ht.wikipedia.org/wiki/Paj_Prensipal "Paj Prensipal – haitiska")
+  * [Kriyòl gwiyannen](https://gcr.wikipedia.org/wiki/Paj_Prensipal "Paj Prensipal – Guianan Creole")
+  * [Kurdî](https://ku.wikipedia.org/wiki/Destp%C3%AAk "Destpêk – kurdiska")
+  * [Kwanyama](https://kj.wikipedia.org/wiki/Main_Page "Main Page – kuanyama")
+  * [Кыргызча](https://ky.wikipedia.org/wiki/%D0%91%D0%B0%D1%88%D0%BA%D1%8B_%D0%B1%D0%B0%D1%80%D0%B0%D0%BA "Башкы барак – kirgiziska")
+  * [Кырык мары](https://mrj.wikipedia.org/wiki/%D0%A2%D3%B9%D0%BD%D0%B3_%D3%B9%D0%BB%D3%B9%D1%88%D1%82%D3%93%D1%88 "Тӹнг ӹлӹштӓш – västmariska")
+  * [Ladin](https://lld.wikipedia.org/wiki/Plata_prinzipala "Plata prinzipala – Ladin")
+  * [Ladino](https://lad.wikipedia.org/wiki/La_Primera_Oja "La Primera Oja – ladino")
+  * [Лакку](https://lbe.wikipedia.org/wiki/%D0%90%D0%B3%D1%8C%D0%B0%D0%BC%D0%BC%D1%83%D1%80_%D0%BB%D0%B0%D0%B6%D0%B8%D0%BD "Агьаммур лажин – Lak")
+  * [ລາວ](https://lo.wikipedia.org/wiki/%E0%BB%9C%E0%BB%89%E0%BA%B2%E0%BA%AB%E0%BA%BC%E0%BA%B1%E0%BA%81 "ໜ້າຫຼັກ – laotiska")
+  * [لۊری شومالی](https://lrc.wikipedia.org/wiki/%D8%B3%D8%B1%D8%A2%D8%B3%D9%88%D9%86%D9%B1 "سرآسونٱ – nordluri")
+  * [Latgaļu](https://ltg.wikipedia.org/wiki/Suoku_puslopa "Suoku puslopa – lettgalliska")
+  * [Latina](https://la.wikipedia.org/wiki/Vicipaedia:Pagina_prima "Vicipaedia:Pagina prima – latin")
+  * [Latviešu](https://lv.wikipedia.org/wiki/S%C4%81kumlapa "Sākumlapa – lettiska")
+  * [Lëtzebuergesch](https://lb.wikipedia.org/wiki/Haapts%C3%A4it "Haaptsäit – luxemburgiska")
+  * [Лезги](https://lez.wikipedia.org/wiki/%D0%9A%D1%8C%D0%B8%D0%BB%D0%B8%D0%BD_%D1%87%D1%87%D0%B8%D0%BD "Кьилин ччин – lezghien")
+  * [Lietuvių](https://lt.wikipedia.org/wiki/Pagrindinis_puslapis "Pagrindinis puslapis – litauiska")
+  * [Li Niha](https://nia.wikipedia.org/wiki/Wikipedia:Olayama "Wikipedia:Olayama – nias")
+  * [Ligure](https://lij.wikipedia.org/wiki/Pagina_prin%C3%A7ip%C3%A2 "Pagina prinçipâ – liguriska")
+  * [Limburgs](https://li.wikipedia.org/wiki/Veurblaad "Veurblaad – limburgiska")
+  * [Lingála](https://ln.wikipedia.org/wiki/Lok%C3%A1s%C3%A1_ya_libos%C3%B3 "Lokásá ya libosó – lingala")
+  * [Lingua Franca Nova](https://lfn.wikipedia.org/wiki/Paje_xef "Paje xef – lingua franca nova")
+  * [Livvinkarjala](https://olo.wikipedia.org/wiki/Pi%C3%A4sivu "Piäsivu – Livvi-Karelian")
+  * [La .lojban.](https://jbo.wikipedia.org/wiki/uikipedi%27as:ralju "uikipedi'as:ralju – lojban")
+  * [Luganda](https://lg.wikipedia.org/wiki/Olupapula_Olusooka "Olupapula Olusooka – luganda")
+  * [Lombard](https://lmo.wikipedia.org/wiki/Pagina_principala "Pagina principala – lombardiska")
+  * [Magyar](https://hu.wikipedia.org/wiki/Kezd%C5%91lap "Kezdőlap – ungerska")
+  * [Madhurâ](https://mad.wikipedia.org/wiki/Tan%C3%A8yan "Tanèyan – maduresiska")
+  * [मैथिली](https://mai.wikipedia.org/wiki/%E0%A4%B8%E0%A4%AE%E0%A5%8D%E0%A4%AE%E0%A5%81%E0%A4%96_%E0%A4%AA%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BE "सम्मुख पन्ना – maithili")
+  * [Македонски](https://mk.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Главна страница – makedonska")
+  * [Malagasy](https://mg.wikipedia.org/wiki/Wikipedia:Fandraisana "Wikipedia:Fandraisana – malagassiska")
+  * [മലയാളം](https://ml.wikipedia.org/wiki/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%A7%E0%B4%BE%E0%B4%A8_%E0%B4%A4%E0%B4%BE%E0%B5%BE "പ്രധാന താൾ – malayalam")
+  * [Malti](https://mt.wikipedia.org/wiki/Il-Pa%C4%A1na_prin%C4%8Bipali "Il-Paġna prinċipali – maltesiska")
+  * [Māori](https://mi.wikipedia.org/wiki/Hau_K%C4%81inga "Hau Kāinga – maori")
+  * [मराठी](https://mr.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुखपृष्ठ – marathi")
+  * [მარგალური](https://xmf.wikipedia.org/wiki/%E1%83%93%E1%83%A3%E1%83%93%E1%83%AE%E1%83%90%E1%83%A1%E1%83%B7%E1%83%9A%E1%83%90 "დუდხასჷლა – mingrelianska")
+  * [مصرى](https://arz.wikipedia.org/wiki/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D9%87_%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D9%87 "الصفحه الرئيسيه – egyptisk arabiska")
+  * [ဘာသာမန်](https://mnw.wikipedia.org/wiki/%E1%80%99%E1%80%AF%E1%80%80%E1%80%BA%E1%80%9C%E1%80%AD%E1%80%80%E1%80%BA%E1%80%90%E1%80%99%E1%80%BA "မုက်လိက်တမ် – Mon")
+  * [مازِرونی](https://mzn.wikipedia.org/wiki/%DA%AF%D8%AA_%D8%B5%D9%81%D8%AD%D9%87 "گت صفحه – mazanderani")
+  * [Bahasa Melayu](https://ms.wikipedia.org/wiki/Laman_Utama "Laman Utama – malajiska")
+  * [ꯃꯤꯇꯩ ꯂꯣꯟ](https://mni.wikipedia.org/wiki/%EA%AF%83%EA%AF%94%EA%AF%A8%EA%AF%91%EA%AF%A3%EA%AF%8F%EA%AF%95_%EA%AF%82%EA%AF%83%EA%AF%A5%EA%AF%8F "ꯃꯔꯨꯑꯣꯏꯕ ꯂꯃꯥꯏ – manipuri")
+  * [Mfantse](https://fat.wikipedia.org/wiki/Kratafa_Tsitsir "Kratafa Tsitsir – fanti")
+  * [Minangkabau](https://min.wikipedia.org/wiki/Laman_Utamo "Laman Utamo – minangkabau")
+  * [閩東語 / Mìng-dĕ̤ng-ngṳ̄](https://cdo.wikipedia.org/wiki/T%C3%A0u_Hi%C4%95k "Tàu Hiĕk – Mindong")
+  * [Mirandés](https://mwl.wikipedia.org/wiki/Biquip%C3%A9dia:P%C3%A1igina_percipal "Biquipédia:Páigina percipal – mirandesiska")
+  * [Мокшень](https://mdf.wikipedia.org/wiki/%D0%9F%D1%80%D1%8F_%D0%BB%D0%BE%D0%BF%D0%B0 "Пря лопа – moksja")
+  * [Монгол](https://mn.wikipedia.org/wiki/%D0%9D%D2%AF%D2%AF%D1%80_%D1%85%D1%83%D1%83%D0%B4%D0%B0%D1%81 "Нүүр хуудас – mongoliska")
+  * [Mvskoke](https://mus.wikipedia.org/wiki/Main_Page "Main Page – muskogee")
+  * [မြန်မာဘာသာ](https://my.wikipedia.org/wiki/%E1%80%97%E1%80%9F%E1%80%AD%E1%80%AF%E1%80%85%E1%80%AC%E1%80%99%E1%80%BB%E1%80%80%E1%80%BA%E1%80%94%E1%80%BE%E1%80%AC "ဗဟိုစာမျက်နှာ – burmesiska")
+  * [Nāhuatl](https://nah.wikipedia.org/wiki/Cal%C4%ABxatl "Calīxatl – Nahuatl")
+  * [Naijá](https://pcm.wikipedia.org/wiki/Main_Pej "Main Pej – nigeriansk pidgin")
+  * [Na Vosa Vakaviti](https://fj.wikipedia.org/wiki/Tabana_levu "Tabana levu – fijianska")
+  * [Nederlands](https://nl.wikipedia.org/wiki/Hoofdpagina "Hoofdpagina – nederländska")
+  * [Nedersaksies](https://nds-nl.wikipedia.org/wiki/V%C3%B6%C3%A4rblad "Vöärblad – lågsaxiska")
+  * [Nēhiyawēwin / ᓀᐦᐃᔭᐍᐏᐣ](https://cr.wikipedia.org/wiki/%E1%93%83%E1%94%A5%E1%91%95%E1%92%BB%E1%90%B9%E1%94%85%E1%91%8C%E1%92%8B%E1%93%82%E1%91%B2%E1%93%90 "ᓃᔥᑕᒻᐹᔅᑌᒋᓂᑲᓐ – cree")
+  * [नेपाली](https://ne.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF_%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0 "मुख्य पृष्ठ – nepalesiska")
+  * [नेपाल भाषा](https://new.wikipedia.org/wiki/%E0%A4%AE%E0%A5%82_%E0%A4%AA%E0%A5%8C "मू पौ – newariska")
+  * [日本語](https://ja.wikipedia.org/wiki/%E3%83%A1%E3%82%A4%E3%83%B3%E3%83%9A%E3%83%BC%E3%82%B8 "メインページ – japanska")
+  * [Napulitano](https://nap.wikipedia.org/wiki/Paggena_prencepale "Paggena prencepale – napolitanska")
+  * [ߒߞߏ](https://nqo.wikipedia.org/wiki/%DF%93%DF%8F%DF%AC%DF%9F%DF%8F%DF%B2%DF%AC%DF%98%DF%8A "ߓߏ߬ߟߏ߲߬ߘߊ – n-kå")
+  * [Нохчийн](https://ce.wikipedia.org/wiki/%D0%9A%D0%BE%D1%8C%D1%80%D1%82%D0%B0_%D0%B0%D0%B3%D3%80%D0%BE "Коьрта агӀо – tjetjenska")
+  * [Nordfriisk](https://frr.wikipedia.org/wiki/Wikipedia:Hoodsid "Wikipedia:Hoodsid – nordfrisiska")
+  * [Norfuk / Pitkern](https://pih.wikipedia.org/wiki/Mien_Paij "Mien Paij – Pitcairn-Norfolk")
+  * [Norsk bokmål](https://no.wikipedia.org/wiki/Forside "Forside – norskt bokmål")
+  * [Norsk nynorsk](https://nn.wikipedia.org/wiki/Hovudside "Hovudside – nynorska")
+  * [Nouormand](https://nrm.wikipedia.org/wiki/Page_d%C3%A9_garde "Page dé garde – Norman")
+  * [Novial](https://nov.wikipedia.org/wiki/Chefi_pagine "Chefi pagine – novial")
+  * [Occitan](https://oc.wikipedia.org/wiki/Acu%C3%A8lh "Acuèlh – occitanska")
+  * [Олык марий](https://mhr.wikipedia.org/wiki/%D0%A2%D3%B1%D2%A5_%D0%BB%D0%B0%D1%88%D1%82%D1%8B%D0%BA "Тӱҥ лаштык – Eastern Mari")
+  * [ଓଡ଼ିଆ](https://or.wikipedia.org/wiki/%E0%AC%AA%E0%AD%8D%E0%AC%B0%E0%AC%A7%E0%AC%BE%E0%AC%A8_%E0%AC%AA%E0%AD%83%E0%AC%B7%E0%AD%8D%E0%AC%A0%E0%AC%BE "ପ୍ରଧାନ ପୃଷ୍ଠା – oriya")
+  * [Oromoo](https://om.wikipedia.org/wiki/Fuula_Dura "Fuula Dura – oromo")
+  * [Oshiwambo](https://ng.wikipedia.org/wiki/Hambili_Tarkerazu "Hambili Tarkerazu – ndonga")
+  * [Otsiherero](https://hz.wikipedia.org/wiki/Main_Page "Main Page – herero")
+  * [Oʻzbekcha / ўзбекча](https://uz.wikipedia.org/wiki/Bosh_Sahifa "Bosh Sahifa – uzbekiska")
+  * [ਪੰਜਾਬੀ](https://pa.wikipedia.org/wiki/%E0%A8%AE%E0%A9%81%E0%A9%B1%E0%A8%96_%E0%A8%B8%E0%A8%AB%E0%A8%BC%E0%A8%BE "ਮੁੱਖ ਸਫ਼ਾ – punjabi")
+  * [पालि](https://pi.wikipedia.org/wiki/%E0%A4%AA%E0%A4%AE%E0%A5%81%E0%A4%96_%E0%A4%AA%E0%A4%A4%E0%A5%8D%E0%A4%A4_Pamukha_patta "पमुख पत्त Pamukha patta – pali")
+  * [Pälzisch](https://pfl.wikipedia.org/wiki/Wikipedia:Haubdsaid "Wikipedia:Haubdsaid – Pfalz-tyska")
+  * [Pangasinan](https://pag.wikipedia.org/wiki/Arapan_ya_Bolong "Arapan ya Bolong – pangasinan")
+  * [Pangcah](https://ami.wikipedia.org/wiki/Sa%E2%80%99ayayaw_pising_no_tyin-naw "Sa’ayayaw pising no tyin-naw – Amis")
+  * [پنجابی](https://pnb.wikipedia.org/wiki/%D9%BE%DB%81%D9%84%D8%A7_%D8%B5%D9%81%DB%81 "پہلا صفہ – Western Punjabi")
+  * [ပအိုဝ်ႏဘာႏသာႏ](https://blk.wikipedia.org/wiki/%E1%80%A1%E1%80%93%E1%80%AD%E1%80%80%E1%80%9C%E1%80%AD%E1%80%90%E1%80%BA%E1%80%99%E1%80%B2%E1%80%B7%E1%80%84%E1%80%AB "အဓိကလိတ်မဲ့ငါ – Pa'O")
+  * [Papiamentu](https://pap.wikipedia.org/wiki/P%C3%A1gina_Prinsipal "Página Prinsipal – papiamento")
+  * [پښتو](https://ps.wikipedia.org/wiki/%D9%84%D9%88%D9%85%DA%93%DB%8C_%D9%85%D8%AE "لومړی مخ – pashto")
+  * [Patois](https://jam.wikipedia.org/wiki/Mien_Piej "Mien Piej – jamaikansk engelsk kreol")
+  * [Перем коми](https://koi.wikipedia.org/wiki/%D0%9F%D0%BE%D0%BD%D0%B4%D3%A7%D1%82%D1%87%D0%B0%D0%BD_%D0%BB%D0%B8%D1%81%D1%82%D0%B1%D0%BE%D0%BA "Пондӧтчан листбок – komi-permjakiska")
+  * [ភាសាខ្មែរ](https://km.wikipedia.org/wiki/%E1%9E%91%E1%9F%86%E1%9E%96%E1%9F%90%E1%9E%9A%E1%9E%8A%E1%9E%BE%E1%9E%98 "ទំព័រដើម – kambodjanska")
+  * [Picard](https://pcd.wikipedia.org/wiki/Accueul "Accueul – pikardiska")
+  * [Piemontèis](https://pms.wikipedia.org/wiki/Intrada "Intrada – piemontesiska")
+  * [Pinayuanan](https://pwn.wikipedia.org/wiki/sitjumaq_na_sapitj "sitjumaq na sapitj – Paiwan")
+  * [Tok Pisin](https://tpi.wikipedia.org/wiki/Fran_pes "Fran pes – tok pisin")
+  * [Plattdüütsch](https://nds.wikipedia.org/wiki/Wikipedia:H%C3%B6%C3%B6ftsiet "Wikipedia:Hööftsiet – lågtyska")
+  * [Polski](https://pl.wikipedia.org/wiki/Wikipedia:Strona_g%C5%82%C3%B3wna "Wikipedia:Strona główna – polska")
+  * [Ποντιακά](https://pnt.wikipedia.org/wiki/%CE%91%CF%81%CF%87%CE%B9%CE%BA%CF%8C%CE%BD_%CF%83%CE%B5%CE%BB%CE%AF%CE%B4%CE%B1 "Αρχικόν σελίδα – pontiska")
+  * [Português](https://pt.wikipedia.org/wiki/Wikip%C3%A9dia:P%C3%A1gina_principal "Wikipédia:Página principal – portugisiska")
+  * [Qafár af](https://aa.wikipedia.org/wiki/Main_Page "Main Page – afar")
+  * [Qaraqalpaqsha](https://kaa.wikipedia.org/wiki/Bas_bet "Bas bet – karakalpakiska")
+  * [Qırımtatarca](https://crh.wikipedia.org/wiki/Ba%C5%9F_Saife "Baş Saife – krimtatariska")
+  * [Reo tahiti](https://ty.wikipedia.org/wiki/Fa%E2%80%99ari%E2%80%99ira%E2%80%99a "Fa’ari’ira’a – tahitiska")
+  * [Ripoarisch](https://ksh.wikipedia.org/wiki/Wikipedia:Houpsigk "Wikipedia:Houpsigk – kölniska")
+  * [Română](https://ro.wikipedia.org/wiki/Pagina_principal%C4%83 "Pagina principală – rumänska")
+  * [Romani čhib](https://rmy.wikipedia.org/wiki/Sherutni_patrin "Sherutni patrin – Vlax Romani")
+  * [Rumantsch](https://rm.wikipedia.org/wiki/Wikipedia:Pagina_principala "Wikipedia:Pagina principala – rätoromanska")
+  * [Runa Simi](https://qu.wikipedia.org/wiki/Qhapaq_p%27anqa "Qhapaq p'anqa – quechua")
+  * [Русиньскый](https://rue.wikipedia.org/wiki/%D0%93%D0%BE%D0%BB%D0%BE%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D0%BE%D1%80%D1%96%D0%BD%D0%BA%D0%B0 "Головна сторінка – rusyn")
+  * [Русский](https://ru.wikipedia.org/wiki/%D0%97%D0%B0%D0%B3%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0%D1%8F_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Заглавная страница – ryska")
+  * [Саха тыла](https://sah.wikipedia.org/wiki/%D0%A1%D2%AF%D1%80%D2%AF%D0%BD_%D1%81%D0%B8%D1%80%D1%8D%D0%B9 "Сүрүн сирэй – jakutiska")
+  * [Sakizaya](https://szy.wikipedia.org/wiki/saayaway_a_belih "saayaway a belih – Sakizaya")
+  * [Gagana Samoa](https://sm.wikipedia.org/wiki/It%C5%ABlau_Muamua "Itūlau Muamua – samoanska")
+  * [संस्कृतम्](https://sa.wikipedia.org/wiki/%E0%A4%AE%E0%A5%81%E0%A4%96%E0%A5%8D%E0%A4%AF%E0%A4%AA%E0%A5%83%E0%A4%B7%E0%A5%8D%E0%A4%A0%E0%A4%AE%E0%A5%8D "मुख्यपृष्ठम् – sanskrit")
+  * [Sängö](https://sg.wikipedia.org/wiki/G%C3%A4_nz%C3%B6n%C3%AE "Gä nzönî – sango")
+  * [ᱥᱟᱱᱛᱟᱲᱤ](https://sat.wikipedia.org/wiki/%E1%B1%A2%E1%B1%A9%E1%B1%AC%E1%B1%A9%E1%B1%9B_%E1%B1%A5%E1%B1%9F%E1%B1%A6%E1%B1%B4%E1%B1%9F "ᱢᱩᱬᱩᱛ ᱥᱟᱦᱴᱟ – santali")
+  * [سرائیکی](https://skr.wikipedia.org/wiki/%D9%BE%DB%81%D9%84%D8%A7_%D9%BE%D8%B1%D8%AA "پہلا پرت – Saraiki")
+  * [Sardu](https://sc.wikipedia.org/wiki/P%C3%A0gina_printzipale "Pàgina printzipale – sardinska")
+  * [Scots](https://sco.wikipedia.org/wiki/Main_Page "Main Page – skotska")
+  * [Seediq](https://trv.wikipedia.org/wiki/Ruwahan_patas "Ruwahan patas – taroko")
+  * [Seeltersk](https://stq.wikipedia.org/wiki/Haudsiede "Haudsiede – saterfrisiska")
+  * [Sesotho](https://st.wikipedia.org/wiki/Leqephe_la_pele "Leqephe la pele – sydsotho")
+  * [Sesotho sa Leboa](https://nso.wikipedia.org/wiki/Letlakala_la_pele "Letlakala la pele – nordsotho")
+  * [Setswana](https://tn.wikipedia.org/wiki/Tsebe_ya_konokono "Tsebe ya konokono – tswana")
+  * [Shqip](https://sq.wikipedia.org/wiki/Faqja_kryesore "Faqja kryesore – albanska")
+  * [Sicilianu](https://scn.wikipedia.org/wiki/P%C3%A0ggina_principali "Pàggina principali – sicilianska")
+  * [සිංහල](https://si.wikipedia.org/wiki/%E0%B6%B8%E0%B7%94%E0%B6%BD%E0%B7%8A_%E0%B6%B4%E0%B7%92%E0%B6%A7%E0%B7%94%E0%B7%80 "මුල් පිටුව – singalesiska")
+  * [Simple English](https://simple.wikipedia.org/wiki/Main_Page "Main Page – Simple English")
+  * [سنڌي](https://sd.wikipedia.org/wiki/%D9%85%D9%8F%DA%A9_%D8%B5%D9%81%D8%AD%D9%88 "مُک صفحو – sindhi")
+  * [SiSwati](https://ss.wikipedia.org/wiki/Likhasi_Lelikhulu "Likhasi Lelikhulu – swati")
+  * [Slovenčina](https://sk.wikipedia.org/wiki/Hlavn%C3%A1_str%C3%A1nka "Hlavná stránka – slovakiska")
+  * [Slovenščina](https://sl.wikipedia.org/wiki/Glavna_stran "Glavna stran – slovenska")
+  * [Словѣньскъ / ⰔⰎⰑⰂⰡⰐⰠⰔⰍⰟ](https://cu.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D1%8C%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%86%D0%B0 "Главьна страница – kyrkslaviska")
+  * [Ślůnski](https://szl.wikipedia.org/wiki/Przodni%C5%8F_zajta "Przodniŏ zajta – silesiska")
+  * [Soomaaliga](https://so.wikipedia.org/wiki/Bogga_Hore "Bogga Hore – somaliska")
+  * [کوردی](https://ckb.wikipedia.org/wiki/%D8%AF%DB%95%D8%B3%D8%AA%D9%BE%DB%8E%DA%A9 "دەستپێک – centralkurdiska")
+  * [Sranantongo](https://srn.wikipedia.org/wiki/Fesipapira "Fesipapira – sranan tongo")
+  * [Српски / srpski](https://sr.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B0 "Главна страна – serbiska")
+  * [Srpskohrvatski / српскохрватски](https://sh.wikipedia.org/wiki/Glavna_stranica "Glavna stranica – serbokroatiska")
+  * [Sunda](https://su.wikipedia.org/wiki/Tepas "Tepas – sundanesiska")
+  * [Suomi](https://fi.wikipedia.org/wiki/Wikipedia:Etusivu "Wikipedia:Etusivu – finska")
+  * [Tagalog](https://tl.wikipedia.org/wiki/Unang_Pahina "Unang Pahina – tagalog")
+  * [தமிழ்](https://ta.wikipedia.org/wiki/%E0%AE%AE%E0%AF%81%E0%AE%A4%E0%AE%B1%E0%AF%8D_%E0%AE%AA%E0%AE%95%E0%AF%8D%E0%AE%95%E0%AE%AE%E0%AF%8D "முதற் பக்கம் – tamil")
+  * [Taclḥit](https://shi.wikipedia.org/wiki/Tasna_Tamzwarut "Tasna Tamzwarut – tachelhit")
+  * [Taqbaylit](https://kab.wikipedia.org/wiki/Asebter_agejdan "Asebter agejdan – kabyliska")
+  * [Tarandíne](https://roa-tara.wikipedia.org/wiki/Pagene_Prengep%C3%A1le "Pagene Prengepále – Tarantino")
+  * [Татарча / tatarça](https://tt.wikipedia.org/wiki/%D0%91%D0%B0%D1%88_%D0%B1%D0%B8%D1%82 "Баш бит – tatariska")
+  * [တႆး](https://shn.wikipedia.org/wiki/%E1%81%BC%E1%82%83%E1%82%88%E1%82%81%E1%80%B0%E1%80%9D%E1%80%BA%E1%82%81%E1%82%85%E1%81%B5%E1%80%BA%E1%82%88 "ၼႃႈႁူဝ်ႁႅၵ်ႈ – shan")
+  * [Tayal](https://tay.wikipedia.org/wiki/T%E2%80%99ringan_na_zzngayan "T’ringan na zzngayan – Atayal")
+  * [తెలుగు](https://te.wikipedia.org/wiki/%E0%B0%AE%E0%B1%8A%E0%B0%A6%E0%B0%9F%E0%B0%BF_%E0%B0%AA%E0%B1%87%E0%B0%9C%E0%B1%80 "మొదటి పేజీ – telugu")
+  * [Tetun](https://tet.wikipedia.org/wiki/P%C3%A1jina_Mahuluk "Pájina Mahuluk – tetum")
+  * [ไทย](https://th.wikipedia.org/wiki/%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%81 "หน้าหลัก – thailändska")
+  * [Thuɔŋjäŋ](https://din.wikipedia.org/wiki/Apam_k%C3%ABd%C3%AFt "Apam këdït – dinka")
+  * [ትግርኛ](https://ti.wikipedia.org/wiki/%E1%88%98%E1%89%A0%E1%8C%88%E1%88%B2_%E1%8C%88%E1%8C%BD "መበገሲ ገጽ – tigrinja")
+  * [Тоҷикӣ](https://tg.wikipedia.org/wiki/%D0%A1%D0%B0%D2%B3%D0%B8%D1%84%D0%B0%D0%B8_%D0%B0%D1%81%D0%BB%D3%A3 "Саҳифаи аслӣ – tadzjikiska")
+  * [Lea faka-Tonga](https://to.wikipedia.org/wiki/Peesi_tali_fiefia "Peesi tali fiefia – tonganska")
+  * [ᏣᎳᎩ](https://chr.wikipedia.org/wiki/%E1%8E%A4%E1%8E%B5%E1%8E%AE%E1%8E%B5%E1%8F%8D%E1%8F%97 "ᎤᎵᎮᎵᏍᏗ – cherokesiska")
+  * [Tsetsêhestâhese](https://chy.wikipedia.org/wiki/Va%27ohtama "Va'ohtama – cheyenne")
+  * [Tshivenda](https://ve.wikipedia.org/wiki/Hayani "Hayani – venda")
+  * [ತುಳು](https://tcy.wikipedia.org/wiki/%E0%B2%AE%E0%B3%81%E0%B2%96%E0%B3%8D%E0%B2%AF_%E0%B2%AA%E0%B3%81%E0%B2%9F "ಮುಖ್ಯ ಪುಟ – tulu")
+  * [Türkçe](https://tr.wikipedia.org/wiki/Anasayfa "Anasayfa – turkiska")
+  * [Türkmençe](https://tk.wikipedia.org/wiki/Ba%C5%9F_Sahypa "Baş Sahypa – turkmeniska")
+  * [Twi](https://tw.wikipedia.org/wiki/Kratafa_Titiriw "Kratafa Titiriw – twi")
+  * [Tyap](https://kcg.wikipedia.org/wiki/A%CC%B1tsak_Wat_Wu "A̱tsak Wat Wu – tyap")
+  * [Тыва дыл](https://tyv.wikipedia.org/wiki/%D0%9A%D0%BE%D0%BB_%D0%B0%D1%80%D1%8B%D0%BD "Кол арын – tuviniska")
+  * [Удмурт](https://udm.wikipedia.org/wiki/%D0%9A%D1%83%D1%82%D1%81%D0%BA%D0%BE%D0%BD_%D0%B1%D0%B0%D0%BC "Кутскон бам – udmurtiska")
+  * [Basa Ugi](https://bug.wikipedia.org/wiki/Watangpola "Watangpola – buginesiska")
+  * [Українська](https://uk.wikipedia.org/wiki/%D0%93%D0%BE%D0%BB%D0%BE%D0%B2%D0%BD%D0%B0_%D1%81%D1%82%D0%BE%D1%80%D1%96%D0%BD%D0%BA%D0%B0 "Головна сторінка – ukrainska")
+  * [اردو](https://ur.wikipedia.org/wiki/%D8%B5%D9%81%D8%AD%DB%82_%D8%A7%D9%88%D9%84 "صفحۂ اول – urdu")
+  * [ئۇيغۇرچە / Uyghurche](https://ug.wikipedia.org/wiki/%D8%A8%D8%A7%D8%B4_%D8%A8%DB%95%D8%AA "باش بەت – uiguriska")
+  * [Vahcuengh](https://za.wikipedia.org/wiki/Yiebdaeuz "Yiebdaeuz – zhuang")
+  * [Vèneto](https://vec.wikipedia.org/wiki/Wikipedia:Prinsipio "Wikipedia:Prinsipio – venetianska")
+  * [Vepsän kel’](https://vep.wikipedia.org/wiki/P%C3%A4lehtpol%E2%80%99 "Pälehtpol’ – veps")
+  * [Tiếng Việt](https://vi.wikipedia.org/wiki/Trang_Ch%C3%ADnh "Trang Chính – vietnamesiska")
+  * [Volapük](https://vo.wikipedia.org/wiki/Cifapad "Cifapad – volapük")
+  * [Võro](https://fiu-vro.wikipedia.org/wiki/Wikipedia:P%C3%A4%C3%A4leht "Wikipedia:Pääleht – võru")
+  * [Walon](https://wa.wikipedia.org/wiki/Mwaisse_p%C3%A5dje "Mwaisse pådje – vallonska")
+  * [Wayuunaiki](https://guc.wikipedia.org/wiki/Ee%27iyalaaya_a%27la%C3%BClaas%C3%BC "Ee'iyalaaya a'laülaasü – wayuu")
+  * [文言](https://zh-classical.wikipedia.org/wiki/%E7%B6%AD%E5%9F%BA%E5%A4%A7%E5%85%B8:%E5%8D%B7%E9%A6%96 "維基大典:卷首 – litterär kineiska")
+  * [West-Vlams](https://vls.wikipedia.org/wiki/Voorblad "Voorblad – västflamländska")
+  * [Winaray](https://war.wikipedia.org/wiki/Syahan_nga_Pakli "Syahan nga Pakli – waray")
+  * [Wolof](https://wo.wikipedia.org/wiki/X%C3%ABt_wu_nj%C3%ABkk "Xët wu njëkk – wolof")
+  * [吴语](https://wuu.wikipedia.org/wiki/%E5%B0%81%E9%9D%A2 "封面 – wu")
+  * [Xitsonga](https://ts.wikipedia.org/wiki/Tlukankulu "Tlukankulu – tsonga")
+  * [ייִדיש](https://yi.wikipedia.org/wiki/%D7%94%D7%95%D7%99%D7%A4%D7%98_%D7%96%D7%99%D7%99%D7%98 "הויפט זייט – jiddisch")
+  * [Yorùbá](https://yo.wikipedia.org/wiki/Oj%C3%BAew%C3%A9_%C3%80k%E1%BB%8D%CC%81k%E1%BB%8D%CC%81 "Ojúewé Àkọ́kọ́ – yoruba")
+  * [粵語](https://zh-yue.wikipedia.org/wiki/%E9%A0%AD%E7%89%88 "頭版 – kantonesiska")
+  * [Zazaki](https://diq.wikipedia.org/wiki/Pela_Seri "Pela Seri – Dimli")
+  * [Zeêuws](https://zea.wikipedia.org/wiki/V%C3%B2blad "Vòblad – zeeländska")
+  * [Žemaitėška](https://bat-smg.wikipedia.org/wiki/P%C4%97rms_poslapis "Pėrms poslapis – samogitiska")
+  * [中文](https://zh.wikipedia.org/wiki/Wikipedia:%E9%A6%96%E9%A1%B5 "Wikipedia:首页 – kinesiska")
+  * [Obolo](https://ann.wikipedia.org/wiki/Uwu "Uwu – obolo")
+  * [Batak Toba](https://bbc.wikipedia.org/wiki/Pogu_ni_Alaman "Pogu ni Alaman – batak-toba")
+  * [Bajau Sama](https://bdr.wikipedia.org/wiki/Tekokon_Laman "Tekokon Laman – West Coast Bajau")
+  * [Betawi](https://bew.wikipedia.org/wiki/Bal%C3%A9-bal%C3%A9 "Balé-balé – betawiska")
+  * [Batak Mandailing](https://btm.wikipedia.org/wiki/Alaman_Utamo "Alaman Utamo – Batak Mandailing")
+  * [Dagaare](https://dga.wikipedia.org/wiki/A_Gamp%C9%9Bl%C9%9B_zu "A Gampɛlɛ zu – Southern Dagaare")
+  * [Kadazandusun](https://dtp.wikipedia.org/wiki/Natad_Tagayo "Natad Tagayo – centraldusun")
+  * [Fɔ̀ngbè](https://fon.wikipedia.org/wiki/W%C3%A9m%C3%A1_Nuk%C9%94nt%C9%94n "Wémá Nukɔntɔn – fonspråket")
+  * [Ghanaian Pidgin](https://gpe.wikipedia.org/wiki/Main_Page "Main Page – Ghanaian Pidgin")
+  * [Jaku Iban](https://iba.wikipedia.org/wiki/Lambar_Keterubah "Lambar Keterubah – ibanska")
+  * [Igala](https://igl.wikipedia.org/wiki/Ogb%C3%A1_ogbolo "Ogbá ogbolo – Igala")
+  * [Kumoring](https://kge.wikipedia.org/wiki/Wikipidiya:Garang "Wikipidiya:Garang – Komering")
+  * [Yerwa Kanuri](https://knc.wikipedia.org/wiki/Wikipedia:Shafi_kura "Wikipedia:Shafi kura – Central Kanuri")
+  * [Kʋsaal](https://kus.wikipedia.org/wiki/Zug_lakir "Zug lakir – Kusaal")
+  * [Moore](https://mos.wikipedia.org/wiki/Soraogo "Soraogo – mossi")
+  * [IsiNdebele seSewula](https://nr.wikipedia.org/wiki/Main_Page "Main Page – sydndebele")
+  * [Nupe](https://nup.wikipedia.org/wiki/Kpataki_Kperegi "Kpataki Kperegi – Nupe")
+  * [ရခိုင်](https://rki.wikipedia.org/wiki/%E1%80%A1%E1%80%93%E1%80%AD%E1%80%80%E1%80%85%E1%80%AC%E1%80%99%E1%80%BB%E1%80%80%E1%80%BA%E1%80%94%E1%80%BE%E1%80%AC "အဓိကစာမျက်နှာ – Arakanese")
+  * [Руски](https://rsk.wikipedia.org/wiki/%D0%93%D0%BB%D0%B0%D0%B2%D0%BD%D0%B8_%D0%B1%D0%BE%D0%BA "Главни бок – Pannonian Rusyn")
+  * [ꠍꠤꠟꠐꠤ](https://syl.wikipedia.org/wiki/%EA%A0%9D%EA%A0%A5%EA%A0%9F_%EA%A0%9A%EA%A0%A3%EA%A0%94%EA%A0%A3 "ꠝꠥꠟ ꠚꠣꠔꠣ – Sylheti")
+  * [ᥖᥭᥰ ᥖᥬᥲ ᥑᥨᥒᥰ](https://tdd.wikipedia.org/wiki/%E1%A5%9E%E1%A5%A8%E1%A5%9D%E1%A5%B4_%E1%A5%98%E1%A5%A3%E1%A5%B2_%E1%A5%96%E1%A5%A5%E1%A5%B0 "ᥞᥨᥝᥴ ᥘᥣᥲ ᥖᥥᥰ – Tai Nuea")
+  * [ትግሬ](https://tig.wikipedia.org/wiki/%E1%8A%A0%E1%8C%8D%E1%8B%B3_%E1%8C%88%E1%8C%BD "አግዳ ገጽ – tigré")
+  * [Tolışi](https://tly.wikipedia.org/wiki/S%C9%99rlovh%C9%99 "Sərlovhə – talysh")
+  * [ⵜⴰⵎⴰⵣⵉⵖⵜ ⵜⴰⵏⴰⵡⴰⵢⵜ](https://zgh.wikipedia.org/wiki/%E2%B5%9C%E2%B4%B0%E2%B5%99%E2%B5%8F%E2%B4%B0_%E2%B5%8F_%E2%B5%93%E2%B5%99%E2%B5%8F%E2%B5%93%E2%B4%B1%E2%B4%B3 "ⵜⴰⵙⵏⴰ ⵏ ⵓⵙⵏⵓⴱⴳ – marockansk standard-tamazight")
+
+
+[Redigera länkar](https://www.wikidata.org/wiki/Special:EntityPage/Q5296#sitelinks-wikipedia "Redigera interwikilänkar")
+  * Sidan redigerades senast den 2 januari 2024 kl. 17.30.
+  * Wikipedias text är tillgänglig under licensen [Creative Commons Erkännande-dela-lika 4.0 Unported](https://creativecommons.org/licenses/by-sa/4.0/deed.sv). För bilder, se respektive bildsida (klicka på bilden). Se vidare [Wikipedia:Upphovsrätt](https://sv.wikipedia.org/wiki/Wikipedia:Upphovsr%C3%A4tt "Wikipedia:Upphovsrätt") och [användarvillkor](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Terms_of_Use).
+
+
+  * [Wikimedias integritetspolicy](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Privacy_policy)
+  * [Om Wikipedia](https://sv.wikipedia.org/wiki/Wikipedia:Om)
+  * [Förbehåll](https://sv.wikipedia.org/wiki/Wikipedia:Allm%C3%A4nt_f%C3%B6rbeh%C3%A5ll)
+  * [Uppförandekod](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Universal_Code_of_Conduct)
+  * [Utvecklare](https://developer.wikimedia.org)
+  * [Statistik](https://stats.wikimedia.org/#/sv.wikipedia.org)
+  * [Information om kakor](https://foundation.wikimedia.org/wiki/Special:MyLanguage/Policy:Cookie_statement)
+  * [Mobilvy](https://sv.m.wikipedia.org/w/index.php?title=Portal:Huvudsida&mobileaction=toggle_view_mobile)
+
+
+  * [![Wikimedia Foundation](https://sv.wikipedia.org/static/images/footer/wikimedia.svg)](https://www.wikimedia.org/)
+  * [![Powered by MediaWiki](https://sv.wikipedia.org/w/resources/assets/mediawiki_compact.svg)](https://www.mediawiki.org/)
+
+
+Sök
+Sök
+Portal:Huvudsida
+[](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida) [](https://sv.wikipedia.org/wiki/Portal:Huvudsida)
+353 språk [Nytt ämne ](https://sv.wikipedia.org/wiki/Portal:Huvudsida)
